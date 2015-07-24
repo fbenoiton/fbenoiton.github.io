@@ -14,7 +14,10 @@ Typiquement, Ira, lui, se retrouve à mener un travail d'écriture après avoir 
 
 Pour mieux me pénétrer de sa méthode, comme source d'inspiration et d'enrichissement pour continuer de ciseler la mienne, une qui me ressemble, de continuer à inventer ou découvrir ma propre voix, j'ai choisi de m'appuyer, de l'appliquer sur une vidéo Youtube de 12 minutes, concernant l'affadissement de la vie sexuelle inhérente au couple avec le temps, dont je n'ai pour l'instant vu que quelques secondes, qui ont donc largement suffit à sa sélection pour le présent article expérimental.
 
-Cela afin d'en appréhender le contenu, et de l'enrichir de mon point de vue et de mon expérience personnelle pour produire un contenu digne d'intéresser son éventuel lecteur. Il s'agit ici d'une infographie animée. Disons que je suis parti en reportage, avec en tête trouver des informations utiles pour retrouver une vie sexuelle avec ma jeune épouse, et de partager alors ma riche expérience, d'autant plus que j'aurais expérimenté en propre des choses, outre la production d'un contenu littéraire.
+Cela afin d'en appréhender le contenu, et de l'enrichir de mon point de vue et de mon expérience personnelle pour produire un contenu digne d'intéresser son éventuel lecteur. Parce que, dans l'oeil de chacun, nous ne voyons pas la même vidéo, il subsiste toujours des différences, surtout sur ce qui nous a le plus marqués.
+
+Il s'agit ici d'une infographie animée. Disons que je suis parti en reportage, avec en tête trouver des informations utiles pour retrouver une vie sexuelle avec ma jeune épouse, et de partager alors ma riche expérience, d'autant plus que j'aurais expérimenté en propre des choses, outre la production d'un contenu littéraire.
+
 
 
 
