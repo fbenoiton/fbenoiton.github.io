@@ -1,7 +1,5 @@
 ## Comme à la radio
 
-***Status: DRAFT***
-
 Ira Glass est un journaliste et animateur de radio américain, qui produit une émission qui semble avoir une bonne notoriété, *This American Life*. Plus largement, l'homme est une référence, semble-t-il, dans l'art du storytelling, version littéraire nonfictionnelle du genre.
 
 J'ai découvert son existence au détour de l'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][1], dans lequel il dévoile sa méthode de travail. L'article est resté un certain temps dans ma base de données Pocket, et puis il y a eu un déclencheur, semble-t-il, je l'ai enfin lu, le temps était semble-t-il venu, il faut croire.
@@ -42,6 +40,4 @@ Pour l'heure tout cela me semble un peu nébuleux, et je ne vois pas encore trop
 
 En tout cas je devrais obtenir noir sur blanc tout ce qui a été dit, et même ici illustré (par les dessins et même les mots qui se dessinent) dans la mesure où cela apporte quelque chose de supplémentaire. C'est j'imagine un long travail qui m'attend, et qui va en gros consister à retaper les sous-titres qui peuvent être affichés optionnellement pendant la lecture de la vidéo. Je ne sais pas qu'elle masse ça représente... Est-ce que j'en profite pour faire une traduction en français au passage. Je ne suis vraiment pas bon à ça, mais allons-y !
 
-> 
-
-
+>
