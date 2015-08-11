@@ -10,7 +10,7 @@ En ce qui me concerne, c'était d'autant plus plausible que mon portable a une m
 
 [1]: https://www.dropbox.com/s/kdfc6ge6roz8v2h/Capture%20d%27%C3%A9cran%202015-08-11%2009.35.08.png?dl=0
 
-Resté sans mobile pendant des années après mon dossier de surendettement, j'ai eu l'occasion d'en reprendre un début 2013. Dans les premiers temps d'utilisation, j'avais alors reçu un MMS que je n'avais jamais pu réceptionner, faute de place, et dont donc jamais pris connaissance. Je pense que c'était parce que j'avais essayé l'appareil photo intégré en prenant une ou deux clichés peu avant.
+Resté sans mobile pendant des années après mon dossier de surendettement, j'ai eu l'occasion d'en reprendre un début 2013. Dans les premiers temps d'utilisation, j'avais alors reçu un MMS que je n'avais jamais pu réceptionner, faute de place, et dont donc jamais pris connaissance. Je pense que c'était parce que j'avais essayé l'appareil photo intégré en prenant un ou deux clichés peu avant.
 
 Ce qui fait que je crois que le MMS est toujours sur le serveur de l'opérateur. À chaque fois que j'éteins mon portable (c'est rare) et que je me reconnecte, je reçois toujours et encore la notification de cette réception.
 
