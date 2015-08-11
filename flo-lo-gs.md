@@ -14,7 +14,7 @@ Resté sans mobile pendant des années après mon dossier de surendettement, j'a
 
 Ce qui fait que je crois que le MMS est toujours sur le serveur de l'opérateur. À chaque fois que j'éteins mon portable (c'est rare) et que je me reconnecte, je reçois toujours et encore la notification de cette réception.
 
-Au détour de mes recherches, j'ai appris l'existence du 33700, un service de signalement commun à tous les opérateurs pour les *"messages indérisables"*, comme ils sont pudiquement appelés. Il faut transférer à ce numéro le SMS reçu, puis envoyer dans un nouveau SMS au même numéro le numéro de l'émetteur utilisé pour l'arnaque.
+Au détour de mes recherches, j'ai appris l'existence du 33700, un service de signalement commun à tous les opérateurs pour les *"messages indésirables"*, comme ils sont pudiquement appelés. Il faut transférer à ce numéro le SMS reçu, puis envoyer dans un nouveau SMS au même numéro le numéro de l'émetteur utilisé pour l'arnaque.
 
 Le service clôt ainsi la conversation :
 
