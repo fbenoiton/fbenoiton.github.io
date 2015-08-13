@@ -6,7 +6,8 @@ Cela fait très longtemps que l'idée d'écrire en anglais me trotte dans la tê
 
 L'idée m'est venue, je pense, à force d'utiliser récemment le service de traduction automatique proposé par Google, mais pas pour traduire ce que j'écrivais en français. En fait c'était pour bénéficier de la synthèse vocale du service, par de ses traductions. Cela entrait dans mon processus d'édition. La lecture à haute voix est un procédé connu pour améliorer et corriger ses textes. La synthèse vocale me semble tout aussi bien aller, tout en étant moins fatigante, pour soi et pour les autres.
 
-... 
+Révisant mes textes paragraphe par paragraphe, j'ai fini par m'intéresser au champ où apparaissaient les traductions. Quelque part, voir ce que ça donnait en anglais m'aider à réviser mon texte. L'autre chose que j'avais en tête pendant ce temps, c'était l'idée de réduire mon ambition littéraire pour réduire la phase d'édition de production des articles, qui connaissait une forte inflation, parce qu'elle semblait contenir une part incompressible, finissait-on par disposer de la meilleure méthode de travail au monde. Ca pouvait même être sans fin. Le résultat semblait toujours pouvoir être amélioré.
 
+L'idée était donc de privilégier une écriture simple, la plus fonctionnelle possible, directe, sans ambiguïtés, et donc par conséquent la clarté du propos. Une écriture susceptible de ne pas mettre le traduteur automatique dans les choux. Mieux le traducteur s'en sortirait, moins la lecture serait un cauchemar pour le lecteur humain.
 
-
+Prenons les choses dans le sens inverse. Le rêve de la traduction automatique ne s'est pas encore réalités, elle n'a pas encore tenu ses promesses, de rendre la langue transparente à l'utilisation du langage. Pourtant, il y a aurait moyen que le rêve devienne dès à présent réalité. Il suffirait de tenir la langage le plus limpide possible, et ce n'est pas une mince affaire, contrairement aux apparences.
