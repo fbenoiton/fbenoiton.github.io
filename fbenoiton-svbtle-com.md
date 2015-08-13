@@ -1,4 +1,4 @@
-## J'ai découvert une subtilité
+## J'ai mis au jour une subtilité
 
 J'ai eu une illumination sous la douche, dimanche matin 9 août 2015. Je dois vérifier immédiatement si mon idée tient la route. C'est le but du présent article. Et le fait que vous puissiez vous rendre compte de son existence signifier qu'elle n'est pas complètement sotte. Comme vous pouvez le constater, j'écris maintenant en anglais, après avoir commencé mon blog Svbtle dans ma langue maternelle.
 
@@ -8,6 +8,6 @@ L'idée m'est venue, je pense, à force d'utiliser récemment le service de trad
 
 Révisant mes textes paragraphe par paragraphe, j'ai fini par m'intéresser au champ où apparaissaient les traductions. Quelque part, voir ce que ça donnait en anglais m'aider à réviser mon texte. L'autre chose que j'avais en tête pendant ce temps, c'était l'idée de réduire mon ambition littéraire pour réduire la phase d'édition de production des articles, qui connaissait une forte inflation, parce qu'elle semblait contenir une part incompressible, finissait-on par disposer de la meilleure méthode de travail au monde. Ca pouvait même être sans fin. Le résultat semblait toujours pouvoir être amélioré.
 
-L'idée était donc de privilégier une écriture simple, la plus fonctionnelle possible, directe, sans ambiguïtés, et donc par conséquent la clarté du propos. Une écriture susceptible de ne pas mettre le traduteur automatique dans les choux. Mieux le traducteur s'en sortirait, moins la lecture serait un cauchemar pour le lecteur humain.
+L'idée était donc de privilégier une écriture simple, la plus fonctionnelle possible, directe, sans ambiguïtés, et donc par conséquent la clarté du propos. Une écriture susceptible de ne pas mettre le traducteur automatique dans les choux. Mieux le traducteur s'en sortirait, moins la lecture serait un cauchemar pour le lecteur humain.
 
 Prenons les choses dans le sens inverse. Le rêve de la traduction automatique ne s'est pas encore réalités, elle n'a pas encore tenu ses promesses, de rendre la langue transparente à l'utilisation du langage. Pourtant, il y a aurait moyen que le rêve devienne dès à présent réalité. Il suffirait de tenir la langage le plus limpide possible, et ce n'est pas une mince affaire, contrairement aux apparences.
