@@ -1,25 +1,3 @@
-## Mon compte est bon
-
-Je ne me sers pas souvent de mon téléphone portable. Il peut même rester des semaines silencieux. Après le spam d'arnaque reçu la veille, il s'est mis à sonner lundi matin 10 août 2015. Je n'ai pas décroché parce que c'était *"Inconnu"* qui m'appelait, pour me laisser cependant un message à 11 h 12 (la voix était féminine) :
-
-> Vous n'avez pas réagi à nos précédentes relances et il est urgent de régler votre découvert à la Banque postale. Contactez-nous ce jour au 02-33-19-12-00. Je répète : le 02-33-19-12-00. Étude d'huissiers de justice Anquetil-Lelièvre. J'attends votre appel aujourd'hui.
-
-La voix enregistrée par le répondeur m'a paru enregistrée. Je me suis même demandé si ce n'était pas une voix de synthèse. J'ignore si c'est tout ce qu'a dit le robot. En tout cas, si je sais une chose de la vie, c'est que la première chose à faire, c'est de ne rien faire. Et puis je devais faire quelques recherches avant de rappeler.
-
-J'ai tenu mes comptes pour la dernière fois fin février. Je ne retrouvais pas le bon solde. Pour moi il aurait dû être créditeur de 18.82 € (dix-huit euros et 82 centimes). Or le service web de consultation donnait 17.84 € (dix-sept euros et 84 centimes). Soit une différence de 0.98 € (selon ma calculatrice Microsoft Windows, combien selon la Banque postale ?).
-
-Je me suis donc rendu sur le site sur lequel je n'étais jamais retournée depuis, plein d'appréhension. À quel point la situation s'était-elle dégradée ? Ancien surendetté, je connaissais la spirale infernale des frais bancaires qui venaient dénoncer la situation qu'ils aggravaient.
-
-J'ai saisi mon identifiant puis tapé mon code confidentiel.
-
-Impossible de se connecter !
-
-J'ai refait plusieurs essais, en vain (copie d'écran).
-
-Cela aurait dû me mettre la puce à l'oreille.
-
-***
-
 ## Deuxième indice
 
 Je n'avais plus qu'à consulter mes derniers relevés de compte mensuels, pour avoir une petite idée de dans quelle panade j'étais, après le message de l'étude d'huissiers. Et je me rends compte maintenant que j'ai eu chaud. En effet, j'ai accepté d'opter pour recevoir les relevés sous forme électronique le 12 décembre 2012.
