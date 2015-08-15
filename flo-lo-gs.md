@@ -1,20 +1,22 @@
 ## Mon compte est bon
 
-Je me sers peu de mon téléphone portable. Il peut même rester des semaines silencieux. Pourtant après le spam de la veille, il s'est remis à sonner lundi matin 10 août 2015. Je n'ai pas répondu, comme l'émetteur qui s'affichait était *"Inconnu"*. Mais il y avait un message téléphonique à 11 h 12 :
+Je ne me sers pas souvent de mon téléphone portable. Il peut même rester des semaines silencieux. Après le spam de la veille, il s'est remis à sonner lundi matin 10 août 2015. Je n'ai pas décroché parce que c'était *"Inconnu"* qui m'appelait, laissant malgré tout un message à 11 h 12 (la voix était féminine) :
 
 > Vous n'avez pas réagi à nos précédentes relances et il est urgent de régler votre découvert à la Banque postale. Contactez-nous ce jour au 02-33-19-12-00. Je répète : le 02-33-19-12-00. Etude d'huissiers de justice Anquetil-Lelièvre. J'attends votre appel aujourd'hui.
 
-C'est déjà la rentrée !
+La voix enregistrée par le répondeur m'a paru enregistrée. Je me suis même demandé demandant même si ce n'était pas une voix de synthèse. J'ignore si l'intégralité du monologue du robot a été enregistrée. En tout cas, si je sais une chose de la vie, c'est que la première chose à faire, c'est de ne rien faire. Et puis je n'allais pas repartir en reportage tête baissée, sans faire quelques recherches.
 
-Bizarrement, la voix enregistrée par le répondeur m'a paru enregistrée, me demandant même un moment si ce n'était pas une voix de synthèse. J'ignore si le répondeur a enregistré l'intégralité du monologue de l'interlocutrice. En tout cas, si je sais une chose de la vie, c'est qu'il faut prendre le temps de réagir quand on en a le loisir. Je n'allais pas partir en reportage tête baissée en rappelant immédiatement, avant d'avoir précisé le contexte et fait quelques recherches.
+Je devais tout d'abord évaluer l'étendue des dégâts. J'ai tenu mes comptes pour la dernière fois fin février. Je ne retrouvais pas le bon solde. Pour moi il aurait dû être créditeur de 18.82 € (dix-huit euros et 82 centimes). Or le service web de consultation donnait un solde de 17.84 € (dix-sept euros et 84 centimes). Soit une différence de 0.98 € (selon ma calculatrice Microsoft Windows, combien selon la Banque postale ?).
 
-Il me fallait commencer par prendre connaissance de l'étendue des dégâts. J'ai tenu mes comptes pour la dernière fois fin février, et je n'y étais jamais retourné depuis. A l'époque je ne retrouvais pas le bon solde. Pour moi mon solde aurait dû créditeur de 18.82 € (dix-huit euros et 82 centimes), or le site web indiquait un solde de 17.84 € (dix-sept euros et 84 centimes), soit une différence d'environ 1 €, 0.98 € exactement (selon ma calculatrice Microsoft Windows, peut-être qu'à la même opération la Banque postale apporterait une réponse différente).
+Je me suis donc rendu sur le site de la Banque postale pour accéder à mon compte en banque en tant que particulier plein d'appréhension. A quel point la situation s'était-elle dégradée ? Ancien surendetté, je craignais le pire. Je connaissais la spirale infernale des frais bancaires pour mieux dénoncer une situation qu'ils aggravaient.
 
-J'ai me suis donc rendu sur le site de la banque postale pour accéder à mon compte en banque en tant que particulier, à l'adresse <https://www.labanquepostale.fr/>. J'éprouvais beaucoup d'appréhension. A quel point la situation s'était-elle dégradée ? Ancien surendetté client de la BNP-Paribas, je craignais le pire, l'accumulation infernale de frais au moindre prétexte.
+J'ai saisi mon identifiant puis tapé mon code confidentiel.
 
-J'ai saisi mon identifiant puis tape mon code confidentiel. Impossible de se connecter ! J'ai refait plusieurs essais, en vain.
+Impossible de se connecter !
 
-Je sais, cela aurait dû me mettre la puce à l'oreille. Mais je n'en étais pas encore là.
+J'ai refait plusieurs essais, en vain (copie d'écran).
+
+Cela aurait dû me mettre la puce à l'oreille.
 
 ***
 
