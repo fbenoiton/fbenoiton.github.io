@@ -13,6 +13,8 @@ Pour l'heure il faut que j'évalue ces fameuses notes orphelines. Leur quantité
 ***
 
 L'exemple de la série Dallas...
+d'ailleurs regardé avec Flo samedi soir 15/8 film Wenders *Don't come knocking* sur le replay d'Arte
+3 périodes notes orphelines : mars, avril et mai.
 
 
 
