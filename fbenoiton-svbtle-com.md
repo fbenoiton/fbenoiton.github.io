@@ -1,4 +1,4 @@
-## J'ai mis au jour une subtilité
+## Le vieil homme et la machine
 
 J'ai eu une illumination sous la douche, dimanche matin 9 août 2015. Je suis impatient de suivre mon intuition. C'est ce que je fais en rédigeant le présent article. Si vous pouvez lire sa version anglaise, sur Svbtle, alors il se pourrait que les choses soient bien engagées.
 
@@ -12,6 +12,10 @@ La difficulté majeure, c'est de parvenir à s'exprimer clairement. Ecrire d'une
 
 L'idée est donc de miser sur une écriture simple, fonctionnelle et directe, sans ambiguïtés. Une écriture qui ne faire pas hoqueter le traducteur automatique.
 
-Mieux le traducteur s'en sortirait, moins la lecture serait un cauchemar pour le lecteur humain, y compris dans la langue d'origine.
+Mieux le robot de traduction s'en sortirait, moins la lecture serait un cauchemar pour le lecteur humain, y compris dans la langue d'origine.
+
+Ce serait l'dée de commencer par être moins étranger à soi-même.
+
+===
 
 
