@@ -1,6 +1,10 @@
 ## Être moins étranger à soi-même
 
-J'ai eu une illumination sous la douche, dimanche matin 9 août 2015. Depuis, je suis  impatient de vérifier mon intuition. C'est ce que je fais en rédigeant le présent article. Si vous pouvez lire sa version anglaise, à cette adresse, alors il se pourrait que les choses se présentent bien.
+J'ai eu une illumination sous la douche, dimanche matin 9 août 2015.
+
+Depuis, je suis  impatient de vérifier mon intuition.
+
+C'est ce que je fais en rédigeant le présent article. Si vous pouvez lire sa version anglaise, à cette adresse, alors il se pourrait que les choses se présentent bien.
 
 L'idée d'écrire en anglais me trotte dans la tête depuis longtemps. Mais je n'ai jamais été bilingue. Or je viens de comprendre que publier était plus important pour moi que d'écrire dans cette langue. La différence est subtile mais de taille.
 
