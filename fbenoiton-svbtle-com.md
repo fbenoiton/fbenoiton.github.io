@@ -2,7 +2,7 @@
 
 J'ai eu une illumination sous la douche, dimanche matin 9 août 2015.
 
-Je rêve d'écrire en anglais depuis toujours. Mais je ne suis pas bilingue.
+Cela fait longtemps que je rêve d'écrire en anglais. Mais je ne suis pas bilingue.
 
 J'ai réalisé que publier en anglais m'importait plus que d'écrire dans cette langue. La distinction est subtile mais cela fait une énorme différence.
 
@@ -12,7 +12,7 @@ Et le rêve devient réalité.
 
 Communiquer le plus clairement possible nos idées dans notre propre langue est un bien plus grand défi que d'apprendre une langue étrangère.
 
-Mieux le robot fonctionne, moins la lecture est un cauchemar pour le lecteur humain, à commencer par sa langue maternelle.
+Mieux le robot fonctionne, moins la lecture est un cauchemar pour le lecteur humain, dans sa langue maternelle pour commencer.
 
 ===
 
