@@ -6,7 +6,7 @@ L'idée de faire des textes en anglais me trotte dans la tête depuis pas mal de
 
 Or j'en suis arrivé à me poser la question : écrire ou publier en anglais ?
 
-Les outils de traduction automatique sont encore loin de tenir leurs promesses. L'idée serait d'obtenir un résultat correct en privilégiant une écriture simple, limpide, directe et fonctionnelle.
+Les outils de traduction automatique sont encore loin de tenir leurs promesses. L'idée serait d'obtenir un résultat correct à l'arrivée en privilégiant une écriture simple, limpide, directe et fonctionnelle au départ.
 
 Et le rêve devient [réalité].
 
