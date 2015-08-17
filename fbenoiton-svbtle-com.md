@@ -30,4 +30,4 @@ And the dream comes true.
 
 Communicating ideas as clearly as possible in our own language is a far greater challenge than learning a foreign one.
 
-Better the robot works, less reading is a nightmare for the human, starting with his native language.
+Better the machine works, less reading is a nightmare for the human, starting with his native language.
