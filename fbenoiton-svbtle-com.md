@@ -24,10 +24,10 @@ I've been dreaming of writing in English for a long time. But I am not bilingual
 
 I realized that publishing in English was more important to me than writing in that language. The distinction is subtle but it makes a huge difference.
 
-Automatic translation tools are still far from their promises. The idea is to get a correct ouput by favoring a simple, clear, direct and functional input.
+Automatic translation tools are still far from their promises. The idea is to get a correct output by favoring a simple, clear, direct and functional input.
 
 And the dream comes true.
 
-Communicating as clearly as possible ideas in our own language is a far greater challenge than learning a foreign one.
+Communicating ideas as clearly as possible in our own language is a far greater challenge than learning a foreign one.
 
 Better the robot works, less reading is a nightmare for the human, starting with his native language.
