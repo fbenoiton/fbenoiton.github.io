@@ -2,17 +2,17 @@
 
 J'ai eu une illumination sous la douche, dimanche matin 9 août 2015.
 
-Cela fait longtemps que je rêve d'écrire en anglais. Mais je ne suis pas bilingue.
+Cela fait longtemps que l'idée de faire des textes en anglais me trotte dans la tête. Le fait de ne pas être bilingue m'a toujours plus ou moins retenu.
 
-J'ai réalisé que publier en anglais m'importait plus que d'écrire dans cette langue. La distinction est subtile mais cela fait une énorme différence.
+Or j'en suis arrivé à me poser la question : écrire en anglais ou publier en anglais ? La distinction est subtile au départ, la différence énorme à l'arrivée.
 
-Les outils de traduction automatique sont encore loin de tenir leurs promesses. L'idée est d'obtenir un résultat correct en privilégiant une écriture simple, limpide, directe et fonctionnelle.
+Les outils de traduction automatique sont encore loin de tenir leurs promesses. Mon idée, ce serait d'obtenir un résultat correct en privilégiant une écriture simple, limpide, directe et fonctionnelle.
 
 Et le rêve devient réalité.
 
-Communiquer le plus clairement possible nos idées dans notre propre langue est un bien plus grand défi que d'apprendre une langue étrangère.
+Communiquer le plus clairement possible dans notre propre langue est un bien plus grand défi que d'apprendre une langue étrangère.
 
-Mieux le robot fonctionne, moins la lecture est un cauchemar pour le lecteur humain, dans sa langue maternelle pour commencer.
+Mieux le robot fonctionne, moins la lecture est un cauchemar pour le lecteur humain. Dans sa langue maternelle, pour commencer.
 
 ===
 
