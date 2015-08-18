@@ -2,7 +2,7 @@
 
 J'ai eu une illumination sous la douche, dimanche matin 9 août 2015.
 
-L'idée de faire des textes en anglais me trotte dans la tête depuis pas mal de temps. Le fait de ne pas être bilingue m'a toujours plus ou moins retenu.
+L'idée de faire des textes en anglais me trotte dans la tête depuis pas mal de temps. Ne pas être bilingue m'a toujours plus ou moins retenu.
 
 Or j'ai réalisé que publier en anglais m'importait davantage que d'écrire en anglais. Cette subtile distinction changeait tout.
 
@@ -14,7 +14,7 @@ Communiquer le plus clairement possible dans notre propre langue est un bien plu
 
 ===
 
-## A Subtle Update
+## Less estranged from oneself
 
 I had an epiphany in the shower on Sunday morning August 9th, 2015.
 
@@ -22,7 +22,7 @@ I've been dreaming of writing in English for a long time. But I'm not bilingual.
 
 I realized that publishing in English was more important to me than writing in that language. The distinction is subtle, but it makes a huge difference.
 
-Automatic translation tools are still far from their promises. The idea is to get a correct output by favoring a simple, clear, direct and functional input.
+Automatic translation tools are still far from their promises. The idea is to get a correct output by favoring a simple, clear, direct, and functional input.
 
 And the [dream] comes true.
 
