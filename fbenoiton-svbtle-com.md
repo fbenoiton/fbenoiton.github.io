@@ -4,7 +4,7 @@ J'ai eu une illumination sous la douche, dimanche matin 9 août 2015.
 
 Je rêve d'écrire en anglais depuis longtemps. Mais je ne suis pas bilingue.
 
-Or j'ai réalisé que publier en anglais m'importait davantage que d'écrire dans cette langue. Cette subtile distinction change tout.
+Or j'ai réalisé que publier en anglais m'importait davantage que d'écrire dans cette langue. Cette subtile distinction changeait tout.
 
 Les outils de traduction automatique sont encore loin de tenir leurs promesses. L'idée est de privilégier une écriture simple, limpide, directe et fonctionnelle pour obtenir un résultat correct à l'arrivée.
 
