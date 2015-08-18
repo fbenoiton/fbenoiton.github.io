@@ -4,9 +4,9 @@ J'ai eu une illumination sous la douche, dimanche matin 9 août 2015.
 
 L'idée de faire des textes en anglais me trotte dans la tête depuis pas mal de temps. Ne pas être bilingue m'a toujours plus ou moins retenu.
 
-Or j'ai réalisé que publier en anglais m'importait davantage que d'écrire en anglais. Cette subtile distinction changeait tout.
+Or j'ai réalisé que publier en anglais m'importait davantage que d'écrire dans cette langue. Cette subtile distinction changeait tout.
 
-Les outils de traduction automatique sont encore loin de tenir leurs promesses. L'idée est d'obtenir un résultat correct à l'arrivée en privilégiant une écriture simple, limpide, directe et fonctionnelle.
+Les outils de traduction automatique sont encore loin de tenir leurs promesses. L'idée est de privilégier une écriture simple, limpide, directe et fonctionnelle pour obtenir un résultat correct à l'arrivée.
 
 Et le rêve devient [réalité].
 
@@ -14,7 +14,7 @@ Communiquer le plus clairement possible dans notre propre langue est un bien plu
 
 ===
 
-## Less estranged from oneself
+## Foreign Languages
 
 I had an epiphany in the shower on Sunday morning August 9th, 2015.
 
