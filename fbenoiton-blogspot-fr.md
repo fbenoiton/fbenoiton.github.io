@@ -1,4 +1,4 @@
-## Comme à la maison (de la radio)
+## La radio de la maison
 
 Je ne connaissais pas Ira Glass, un journaliste et animateur de radio américain. Le Newyorkais produit une émission qui jouit d'un certain prestige, [This American Life][1]. L'homme semble qui plus est une pointure dans l'art du storytelling.
 
@@ -14,24 +14,29 @@ Surtout, je me suis tout de suite consumé d'envie de la mettre en pratique.
 
 D'une certaine façon, c'est un peu déjà la façon de procéder ici pour parler de cet article. Plutôt que d'exhumer des reportages que j'ai effectuée dans mes dernières années de correspondant local de presse et que, débordé et à la remorque du taquet, je n'avais pas eu le temps de traduire en papiers à mon grand dam, disons que, pour appliquer les enseignements d'Ira de préférence sur un sujet porteur, je suis sorti sur le Web et que j'ai vécu l'expérience de regarder une vidéo sur Youtube.
 
-Dans [How to Keep Having Sex][3], The School of Life traite en 12 minutes, sous la forme d'une infraphie animée, de l'affadissement de la vie sexuelle inhérente au couple plus celui-ci s'inscrit dans le temps et les institutions de la société dans laquelle il vit.
+Dans [How to Keep Having Sex][3], The School of Life traite en 12 minutes, sous la forme d'une infographie animée, de l'affadissement de la vie sexuelle inhérente au couple plus celui-ci s'inscrit dans le temps et les institutions de la société dans laquelle il vit.
 
 [3]: https://youtu.be/dh43cVtfMYs
 
-Quand il revient de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien, ses moments favoris.
+Quand il revient de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient de mener, ses moments favoris.
 
-En général, il se retrouve avec une demi-dizaine de points pour une heure d'interview, qui lui seront par la suite bien utiles. Souvent, il tient la structure de ce qu'il va pouvoir produire au final, de l'histoire à raconter qu'il va pouvoir en tirer. Quand il passe toute la journée dehors, et bien il ne fait ça que le soir, tant pis, et il continue de le faire très consciencieusement, tellement c'est utile même si ça n'a pas l'air comme ça.
+En général, il dit se retrouver avec une demi-dizaine d'items pour une heure d'interview. Si elle ne paye pas de mine, cette prise de repères lui sera par la suite bien utile. Souvent, il tient là l'ossature de l'histoire qu'il va monter au final. 
 
-Dans notre cas, le visionnage, sans prise de notes, de la vidéo dans son intégralité va nous tenir lieu d'interview. C'est une expérience comme une autre ! En ce qui me concerne, il va y avoir malgré tout des interruptions, du simple fait de la barrière de la langue, en ce qui concerne les mots et phrases en incrustations, sans parler des sous-titres dans la langue orginale, et qui heureusement ici ne sont pas générés automatiquement, ce qui éviter bien des approximations et incompréhensions. Quoi que en fait non, pas d'interruptions, tant pis si je ne capte pas tout, c'est même peut-être mieux, ma capacité d'étonnement n'en sera peut-être que plus pure.
+Si jamais il passe toute la journée dehors, eh bien il ne fait ça que le soir, et il prenant le temps de le faire consciencieusement tellement c'est important.
+
+Pour appliquer cette méthode sur le sujet qui nous occupe, je propose de commencer parvisionner la vidéo d'un trait, sans prendre de notes. On pourrait même se dire que c'est nous qui l'avons enregistré, comme si ce qui était présenté l'avait été dans la réalité, sur la scène d'un théâtre, par exemple, et que nous l'avions filmé.
+
+Ensuite, dans la foulée, il s'agirait de noter ce qui nous a marqués, étonnés, les passages qu'on a bien aimés ou au contraire affolés.
+
+Bien sûr, il s'agit là de quelque chose de très subjectif. On peut imaginer sans peine qui il aurait autant de sélections différentes que de sélectionneurs. Il y a autant de vidéos que de spectateurs, nous ne voyons pas tout à fait la même chose.
 
 Ca vous dit de tenter l'expérience avec moi ?
 
----
-
-  Parce que, dans l'oeil de chacun, nous ne voyons pas la même vidéo, il subsiste toujours des différences, surtout sur ce qui nous a le plus marqués.
-  Typiquement, Ira, lui, se retrouve à mener un travail d'écriture après avoir rapporté, une masse parfois conséquente d'enregistrements d'interviews.
-
 ***
+
+Typiquement, Ira, lui, se retrouve à mener un travail d'écriture après avoir rapporté, une masse parfois conséquente d'enregistrements d'interviews.
+
+En ce qui me concerne, il va y avoir malgré tout des interruptions, du simple fait de la barrière de la langue, en ce qui concerne les mots et phrases en incrustations, sans parler des sous-titres dans la langue orginale, et qui heureusement ici ne sont pas générés automatiquement, ce qui éviter bien des approximations et incompréhensions. Quoi que en fait non, pas d'interruptions, tant pis si je ne capte pas tout, c'est même peut-être mieux, ma capacité d'étonnement n'en sera peut-être que plus pure.
 
 Houlà, ce n'est pas évident ! Je tente une liste, malgré peur-être les contresens :
 
