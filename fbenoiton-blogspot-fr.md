@@ -1,4 +1,4 @@
-## Comme à la radio
+## Comme à la maison (de la radio)
 
 Je ne connaissais pas Ira Glass, un journaliste et animateur de radio américain. Le Newyorkais produit une émission qui jouit d'un certain prestige, [This American Life][1]. L'homme semble qui plus est une pointure dans l'art du storytelling.
 
@@ -10,25 +10,26 @@ L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and Thi
 
 Je me suis délecté du passage sur la problématique de la gestion de la grande masse d'information avec laquelle on peut rentrer de reportage, en plus de notre propre vécu. Comment s'en sortir, à partir de tout ce matériau, tous ces enregistrements et toutes ces impressions, pour construire et articuler un produit fini, raffiné, et porteur de sens, comme un article ou une émission de radio qui ravira le lecteur ou l'auditeur.
 
-Surtout, j'ai tout de suite brûlé d'envie de la mettre en pratique.
+Surtout, je me suis tout de suite consumé d'envie de la mettre en pratique.
 
----
+D'une certaine façon, c'est un peu déjà la façon de procéder ici pour parler de cet article. Plutôt que d'exhumer des reportages que j'ai effectuée dans mes dernières années de correspondant local de presse et que, débordé et à la remorque du taquet, je n'avais pas eu le temps de traduire en papiers à mon grand dam, disons que, pour appliquer les enseignements d'Ira de préférence sur un sujet porteur, je suis sorti sur le Web et que j'ai vécu l'expérience de regarder une vidéo sur Youtube.
 
-Pour mieux me pénétrer de sa méthode, comme source d'inspiration et d'enrichissement pour continuer de ciseler la mienne, une qui me ressemble, de continuer à inventer ou découvrir ma propre voix, j'ai choisi de m'appuyer, de l'appliquer sur une vidéo Youtube de 12 minutes, concernant l'affadissement de la vie sexuelle inhérente au couple avec le temps, dont je n'ai pour l'instant vu que quelques secondes, qui ont donc largement suffit à sa sélection pour le présent article expérimental.
+Dans [How to Keep Having Sex][3], The School of Life traite en 12 minutes, sous la forme d'une infraphie animée, de l'affadissement de la vie sexuelle inhérente au couple plus celui-ci s'inscrit dans le temps et les institutions de la société dans laquelle il vit.
 
-Cela afin d'en appréhender le contenu, et de l'enrichir de mon point de vue et de mon expérience personnelle pour produire un contenu digne d'intéresser son éventuel lecteur. Parce que, dans l'oeil de chacun, nous ne voyons pas la même vidéo, il subsiste toujours des différences, surtout sur ce qui nous a le plus marqués.
+[3]: https://youtu.be/dh43cVtfMYs
 
-Il s'agit ici d'une infographie animée. Disons que je suis parti en reportage, avec en tête trouver des informations utiles pour retrouver une vie sexuelle avec ma jeune épouse, et de partager alors ma riche expérience, d'autant plus que j'aurais expérimenté en propre des choses, outre la production d'un contenu littéraire.
+Quand il revient de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien, ses moments favoris.
 
-Typiquement, Ira, lui, se retrouve à mener un travail d'écriture après avoir rapporté, une masse parfois conséquente d'enregistrements d'interviews.
-
-Quand il sort d'une interview, Ira jette sur le papier ce qui l'a marqué, les meilleurs moments, à son sens, de l'entretien, au sens de préférés, favoris. En général il se retrouve avec une demi-dizaine de points pour une heure d'interview, qui lui seront par la suite bien utiles. Souvent, il tient la structure de ce qu'il va pouvoir produire au final, de l'histoire à raconter qu'il va pouvoir en tirer. Quand il passe toute la journée dehors, et bien il ne fait ça que le soir, tant pis, et il continue de le faire très consciencieusement, tellement c'est utile même si ça n'a pas l'air comme ça.
+En général, il se retrouve avec une demi-dizaine de points pour une heure d'interview, qui lui seront par la suite bien utiles. Souvent, il tient la structure de ce qu'il va pouvoir produire au final, de l'histoire à raconter qu'il va pouvoir en tirer. Quand il passe toute la journée dehors, et bien il ne fait ça que le soir, tant pis, et il continue de le faire très consciencieusement, tellement c'est utile même si ça n'a pas l'air comme ça.
 
 Dans notre cas, le visionnage, sans prise de notes, de la vidéo dans son intégralité va nous tenir lieu d'interview. C'est une expérience comme une autre ! En ce qui me concerne, il va y avoir malgré tout des interruptions, du simple fait de la barrière de la langue, en ce qui concerne les mots et phrases en incrustations, sans parler des sous-titres dans la langue orginale, et qui heureusement ici ne sont pas générés automatiquement, ce qui éviter bien des approximations et incompréhensions. Quoi que en fait non, pas d'interruptions, tant pis si je ne capte pas tout, c'est même peut-être mieux, ma capacité d'étonnement n'en sera peut-être que plus pure.
 
-Regardons donc [How to Keep Having Sex][2].
+Ca vous dit de tenter l'expérience avec moi ?
 
-[2]: https://youtu.be/dh43cVtfMYs
+---
+
+  Parce que, dans l'oeil de chacun, nous ne voyons pas la même vidéo, il subsiste toujours des différences, surtout sur ce qui nous a le plus marqués.
+  Typiquement, Ira, lui, se retrouve à mener un travail d'écriture après avoir rapporté, une masse parfois conséquente d'enregistrements d'interviews.
 
 ***
 
