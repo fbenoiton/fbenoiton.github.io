@@ -1,10 +1,12 @@
 ## La radio de la maison
 
-Je ne connaissais pas Ira Glass, journaliste et animateur de radio américain. Le Newyorkais produit une émission qui jouit d'un certain prestige, [This American Life][1]. L'homme semble qui plus est une référence dans le domaine du storytelling.
+*Capture d'écran 2015-08-18*
+
+Je ne connaissais pas Ira Glass, journaliste et animateur de radio américain. Le New-Yorkais produit une émission qui jouit d'un certain prestige, [This American Life][1], et semble faire autorité dans le domaine de la mise en récit (storytelling).
 
 [1]: http://www.thisamericanlife.org/
 
-L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2], dévoile sa méthode de travail et les outils qu'il utilise. Le papier est resté pas mal de temps à croupir dans mon [Pocket][3] avant que je ne me décide à le lire. Le moment était venu, car ne n'ai vraiment pas regretté ma lecture.
+L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2] dévoile la méthode de travail de l'homme et les outils qu'il utilise. Le papier est resté pas mal de temps dans mon [Pocket][3] avant que je ne me décide à l'ouvrir. C'était le bon moment, car j'ai raffolé de ma lecture.
 
 [2]: http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031
 [3]: https://getpocket.com/
