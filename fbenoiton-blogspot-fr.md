@@ -1,12 +1,13 @@
 ## La radio de la maison
 
-Je ne connaissais pas Ira Glass, un journaliste et animateur de radio américain. Le Newyorkais produit une émission qui jouit d'un certain prestige, [This American Life][1]. L'homme semble qui plus est une pointure dans l'art du storytelling.
+Je ne connaissais pas Ira Glass, journaliste et animateur de radio américain. Le Newyorkais produit une émission qui jouit d'un certain prestige, [This American Life][1]. L'homme semble qui plus est une référence dans le domaine du storytelling.
 
 [1]: http://www.thisamericanlife.org/
 
-L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2], dévoile sa méthode de travail et les outils qu'il utilise. Le papier est resté pas mal de temps dans ma liste Pocket avant que je ne me décide à le lire. Le moment était venu, car ne n'ai vraiment pas regretté ma lecture.
+L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2], dévoile sa méthode de travail et les outils qu'il utilise. Le papier est resté pas mal de temps à croupir dans mon [Pocket][3] avant que je ne me décide à le lire. Le moment était venu, car ne n'ai vraiment pas regretté ma lecture.
 
 [2]: http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031
+[3]: https://getpocket.com/
 
 Je me suis délecté du passage sur la problématique de la gestion de la grande masse d'information avec laquelle on peut rentrer de reportage, en plus de notre propre vécu. Comment s'en sortir, à partir de tout ce matériau, tous ces enregistrements et toutes ces impressions, pour construire et articuler un produit fini, raffiné, et porteur de sens, comme un article ou une émission de radio qui ravira le lecteur ou l'auditeur.
 
@@ -14,9 +15,9 @@ Surtout, je me suis tout de suite consumé d'envie de la mettre en pratique.
 
 D'une certaine façon, c'est un peu déjà la façon de procéder ici pour parler de cet article. Plutôt que d'exhumer des reportages que j'ai effectuée dans mes dernières années de correspondant local de presse et que, débordé et à la remorque du taquet, je n'avais pas eu le temps de traduire en papiers à mon grand dam, disons que, pour appliquer les enseignements d'Ira de préférence sur un sujet porteur, je suis sorti sur le Web et que j'ai vécu l'expérience de regarder une vidéo sur Youtube.
 
-Dans [How to Keep Having Sex][3], The School of Life traite en 12 minutes, sous la forme d'une infographie animée, de l'affadissement de la vie sexuelle inhérente au couple plus celui-ci s'inscrit dans le temps et les institutions de la société dans laquelle il vit.
+Dans [How to Keep Having Sex][4], The School of Life traite en 12 minutes, sous la forme d'une infographie animée, de l'affadissement de la vie sexuelle inhérente au couple plus celui-ci s'inscrit dans le temps et les institutions de la société dans laquelle il vit.
 
-[3]: https://youtu.be/dh43cVtfMYs
+[4]: https://youtu.be/dh43cVtfMYs
 
 Quand il revient de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient de mener, ses moments favoris.
 
