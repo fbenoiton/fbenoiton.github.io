@@ -8,7 +8,7 @@ L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and Thi
 
 [2]: http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031
 
-Je me suis délecté du passage sur la problématique de la gestion de la grande masse d'information avec laquelle on peut rentrer de reportage, en plus de notre propre vécu. Comment s'en sortir, à partir de tout ce matériau, tous ces enregistrements et toutes ces impressions, pour construire et articuler un produit fini, raffiné, comme un article ou une émission de radio qui ravira le lecteur ou l'auditeur.
+Je me suis délecté du passage sur la problématique de la gestion de la grande masse d'information avec laquelle on peut rentrer de reportage, en plus de notre propre vécu. Comment s'en sortir, à partir de tout ce matériau, tous ces enregistrements et toutes ces impressions, pour construire et articuler un produit fini, raffiné, et porteur de sens, comme un article ou une émission de radio qui ravira le lecteur ou l'auditeur.
 
 Surtout, j'ai tout de suite brûlé d'envie de la mettre en pratique.
 
