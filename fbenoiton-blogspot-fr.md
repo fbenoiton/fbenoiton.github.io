@@ -9,29 +9,30 @@ L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and Thi
 [2]: http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031
 [3]: https://getpocket.com/
 
-Je me suis délecté du passage sur comment gérer la grande masse d'information brute que l'on peut rapporter de reportage, en plus de notre propre vécu. À partir de tout ce matériau collecté, tous ces enregistrements et toutes ces impressions, comment s'y prendre pour construire et articuler un produit fini, raffiné et porteur de sens, comme un article ou une émission de radio qui passionnera le lecteur ou l'auditeur.
+Je me suis délecté du passage sur comment gérer la grande masse d'information brute que l'on peut rapporter de reportage, en plus de notre propre vécu. À partir de tout ce matériau collecté, tous ces enregistrements et toutes ces impressions, comment s'y prendre pour construire et articuler un produit fini, raffiné et porteur de sens, comme un article ou une émission de radio qui fera grimper aux rideaux lecteurs et auditeurs.
 
 Je me suis vite consumé d'envie de mettre les enseignements d'Ira Glass en pratique.
 
-Plutôt que d'exhumer des reportages que j'ai effectués dans mes dernières années de correspondant local de presse à la dérive et que, dépassé par les événements, je n'avais pas eu le temps de traiter, j'ai préféré, pour le présent article, jeter mon dévolu sur un sujet porteur. Alors disons je suis sorti faire un tour sur le Web, et que j'ai vécu l'expérience de voir se dérouler sous mes yeux une vidéo Youtube.
+Plutôt que d'exhumer des reportages que j'ai effectués dans mes dernières années de correspondant local de presse à la dérive et que, toujours plus dépassé par les événements, je n'avais pas eu le temps de traiter, j'ai préféré jeter mon dévolu sur un sujet porteur. Alors disons je suis sorti faire un tour sur le Web, et que j'ai vécu l'expérience de voir se dérouler sous mes yeux une vidéo Youtube.
 
-Dans [How to Keep Having Sex][4] (Comment continuer d'avoir des relations sexuelles), The School of Life (L'école de la vie) traite en 12 minutes, sous la forme d'une infographie animée, l'affadissement de la vie sexuelle inhérent au couple plus celui-ci s'enfonce dans le temps et se moule dans les institutions.
+Dans [How to Keep Having Sex][4] (Comment continuer d'avoir du sexe dans le couple), [The School of Life][5] (L'école de la vie) traite en 12 minutes, sous la forme d'une infographie animée, l'affadissement de la vie sexuelle inhérent aux relations amoureuses qui s'inscrivent dans la durée.
 
 [4]: https://youtu.be/dh43cVtfMYs
+[5]: http://www.theschooloflife.com/paris/
 
-Quand il rentre de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient de mener, ses moments favoris.
+Quand il rentre de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient d'avoir, ses épisodes favoris.
 
-En général, il dit se retrouver avec une demi-dizaine d'items pour une heure d'interview. Si elle ne paye pas de mine, cette prise de repères lui sera par la suite bien utile. Souvent, il tient là l'ossature de l'histoire qu'il va monter au final. 
+En général il faut compter une demi-dizaine d'items pour une heure d'interview. Si elle ne paye pas de mine, cette prise de repères lui sera par la suite bien utile. Souvent, il tient là l'ossature de l'histoire qu'il va pouvoir conter. 
 
-Si jamais il passe toute la journée dehors, eh bien il ne fait ça que le soir, et il prenant le temps de le faire consciencieusement tellement c'est important.
+Si jamais il passe toute la journée dehors, eh bien il prend le temps de le faire ça le soir, tellement c'est important.
 
-Pour appliquer cette méthode sur le sujet qui nous occupe, je propose de commencer parvisionner la vidéo d'un trait, sans prendre de notes. On pourrait même aller jusqu'à se dire que c'est nous qui l'avons enregistré, comme si ce qui était présenté l'avait été dans la réalité, sur la scène d'un théâtre, par exemple, et que nous l'avions filmé.
+Je vais commencer par visionner la vidéo d'un trait, sans prendre de notes (de toute façon comme elle est en anglais il faut que je lise les sous-titres, ça va être dur de faire du *multitasking* sur ce coup-là). Je pourrais même aller jusqu'à me dire que c'est moi qui l'ai filmée, comme s'il s'agissait d'un spectacle présenté dans le monde réel, sur la scène d'un théâtre, par exemple. Il ne s'agit pas de faire des efforts de mémoire particuliers.
 
-Ensuite, dans la foulée, il s'agirait de noter ce qui nous a marqués, étonnés, les passages qu'on a bien aimés ou au contraire affolés.
+Ensuite, dans la foulée, je vais faire de tête une liste de ce qui m'a marqué ou étonné, relever les passages que j'ai bien aimés ou qui m'ont au contraire affolé.
 
-Bien sûr, il s'agit là de quelque chose de très subjectif. On peut imaginer sans peine qui il aurait autant de sélections différentes que de sélectionneurs. Il y a autant de vidéos que de spectateurs, nous ne voyons pas tout à fait la même chose.
+Bien sûr, il s'agit là de quelque chose de très subjectif. On peut imaginer sans peine qui il aurait autant de retours que de spectateurs. Nous sommes uniques, nous ne verrions pas tout à fait la même chose.
 
-Ca vous dirait d'essayer avec moi ?
+Ca vous dirait de tenter le coup avec moi ?
 
 ***
 
