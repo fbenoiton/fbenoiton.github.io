@@ -1,39 +1,37 @@
-## La radio de la maison
+## Radio maison
 
-*Capture d'écran 2015-08-18*
-
-Je ne connaissais pas Ira Glass, journaliste et animateur de radio américain. Le New-Yorkais produit une émission qui jouit d'un certain prestige, [This American Life][1], et semble faire autorité dans le domaine de la mise en récit (storytelling).
+Je ne connaissais pas Ira Glass, journaliste et animateur de radio américain. L'homme produit une émission qui jouit d'un certain prestige, [This American Life][1], et semble aussi un maître dans l'art de la mise en récit (storytelling).
 
 [1]: http://www.thisamericanlife.org/
 
-L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2] dévoile la méthode de travail de l'homme et les outils qu'il utilise. Le papier est resté pas mal de temps dans mon [Pocket][3] avant que je ne me décide à l'ouvrir. C'était le bon moment, car j'ai raffolé de ma lecture.
+L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2] nous fait découvrir la méthode et les outils de travail du New-Yorkais. Le papier est resté pas mal de temps dans mon [Pocket][3] avant que je ne me décide à l'ouvrir. Ce devait être le bon moment, car sa lecture m'a ravi.
 
 [2]: http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031
 [3]: https://getpocket.com/
 
-Je me suis délecté du passage sur la problématique de la gestion de la grande masse d'information avec laquelle on peut rentrer de reportage, en plus de notre propre vécu. Comment s'en sortir, à partir de tout ce matériau, tous ces enregistrements et toutes ces impressions, pour construire et articuler un produit fini, raffiné, et porteur de sens, comme un article ou une émission de radio qui ravira le lecteur ou l'auditeur.
+Je me suis délecté du passage sur comment gérer la grande masse d'information brute que l'on peut rapporter de reportage, en plus de notre propre vécu. À partir de tout ce matériau collecté, tous ces enregistrements et toutes ces impressions, comment s'y prendre pour construire et articuler un produit fini, raffiné et porteur de sens, comme un article ou une émission de radio qui passionnera le lecteur ou l'auditeur.
 
-Surtout, je me suis tout de suite consumé d'envie de la mettre en pratique.
+Je me suis vite consumé d'envie de mettre les enseignements d'Ira Glass en pratique.
 
-D'une certaine façon, c'est un peu déjà la façon de procéder ici pour parler de cet article. Plutôt que d'exhumer des reportages que j'ai effectuée dans mes dernières années de correspondant local de presse et que, débordé et à la remorque du taquet, je n'avais pas eu le temps de traduire en papiers à mon grand dam, disons que, pour appliquer les enseignements d'Ira de préférence sur un sujet porteur, je suis sorti sur le Web et que j'ai vécu l'expérience de regarder une vidéo sur Youtube.
+Plutôt que d'exhumer des reportages que j'ai effectués dans mes dernières années de correspondant local de presse à la dérive et que, dépassé par les événements, je n'avais pas eu le temps de traiter, j'ai préféré, pour le présent article, jeter mon dévolu sur un sujet porteur. Alors disons je suis sorti faire un tour sur le Web, et que j'ai vécu l'expérience de voir se dérouler sous mes yeux une vidéo Youtube.
 
-Dans [How to Keep Having Sex][4], The School of Life traite en 12 minutes, sous la forme d'une infographie animée, de l'affadissement de la vie sexuelle inhérente au couple plus celui-ci s'inscrit dans le temps et les institutions de la société dans laquelle il vit.
+Dans [How to Keep Having Sex][4] (Comment continuer d'avoir des relations sexuelles), The School of Life (L'école de la vie) traite en 12 minutes, sous la forme d'une infographie animée, l'affadissement de la vie sexuelle inhérent au couple plus celui-ci s'enfonce dans le temps et se moule dans les institutions.
 
 [4]: https://youtu.be/dh43cVtfMYs
 
-Quand il revient de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient de mener, ses moments favoris.
+Quand il rentre de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient de mener, ses moments favoris.
 
 En général, il dit se retrouver avec une demi-dizaine d'items pour une heure d'interview. Si elle ne paye pas de mine, cette prise de repères lui sera par la suite bien utile. Souvent, il tient là l'ossature de l'histoire qu'il va monter au final. 
 
 Si jamais il passe toute la journée dehors, eh bien il ne fait ça que le soir, et il prenant le temps de le faire consciencieusement tellement c'est important.
 
-Pour appliquer cette méthode sur le sujet qui nous occupe, je propose de commencer parvisionner la vidéo d'un trait, sans prendre de notes. On pourrait même se dire que c'est nous qui l'avons enregistré, comme si ce qui était présenté l'avait été dans la réalité, sur la scène d'un théâtre, par exemple, et que nous l'avions filmé.
+Pour appliquer cette méthode sur le sujet qui nous occupe, je propose de commencer parvisionner la vidéo d'un trait, sans prendre de notes. On pourrait même aller jusqu'à se dire que c'est nous qui l'avons enregistré, comme si ce qui était présenté l'avait été dans la réalité, sur la scène d'un théâtre, par exemple, et que nous l'avions filmé.
 
 Ensuite, dans la foulée, il s'agirait de noter ce qui nous a marqués, étonnés, les passages qu'on a bien aimés ou au contraire affolés.
 
 Bien sûr, il s'agit là de quelque chose de très subjectif. On peut imaginer sans peine qui il aurait autant de sélections différentes que de sélectionneurs. Il y a autant de vidéos que de spectateurs, nous ne voyons pas tout à fait la même chose.
 
-Ca vous dit de tenter l'expérience avec moi ?
+Ca vous dirait d'essayer avec moi ?
 
 ***
 
