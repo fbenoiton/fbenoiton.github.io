@@ -1,40 +1,4 @@
-## Radio maison
-
-Je ne connaissais pas Ira Glass, journaliste et animateur de radio américain. L'homme produit une émission qui jouit d'un certain prestige, [This American Life][1], et semble aussi un maître dans l'art de la mise en récit (storytelling).
-
-[1]: http://www.thisamericanlife.org/
-
-L'article du site Lifehacker [I'm Ira Glass, Host of This American Life, and This Is How I Work][2] nous fait découvrir la méthode et les outils de travail du New-Yorkais. Le papier est resté pas mal de temps dans mon [Pocket][3] avant que je ne me décide à l'ouvrir. Ce devait être le bon moment, car sa lecture m'a ravi.
-
-[2]: http://lifehacker.com/im-ira-glass-host-of-this-american-life-and-this-is-h-1609562031
-[3]: https://getpocket.com/
-
-Je me suis délecté du passage sur comment gérer la grande masse d'information brute que l'on peut rapporter de reportage, en plus de notre propre vécu. À partir de tout ce matériau collecté, tous ces enregistrements et toutes ces impressions, comment s'y prendre pour construire et articuler un produit fini, raffiné et porteur de sens, comme un article ou une émission de radio qui fera grimper aux rideaux lecteurs et auditeurs.
-
-Je me suis vite retrouvé avec la formidable envie de mettre les enseignements d'Ira Glass en pratique.
-
-Plutôt que d'exhumer des reportages que j'ai effectués dans mes dernières années de correspondant local de presse à la dérive et que, toujours plus dépassé par les événements, je n'avais pas eu le temps de traiter, j'ai préféré jeter mon dévolu sur un sujet porteur. Alors disons je suis sorti faire un tour sur le Web, et que j'ai vécu l'expérience de voir se dérouler sous mes yeux une vidéo Youtube.
-
-Dans [How to Keep Having Sex][4] (Comment continuer d'avoir du sexe dans le couple), [The School of Life][5] (L'école de la vie) traite en 12 minutes, sous la forme d'une infographie animée, l'affadissement de la vie sexuelle inhérent aux relations amoureuses qui s'inscrivent dans la durée et la reconnaissance officielle.
-
-[4]: https://youtu.be/dh43cVtfMYs
-[5]: http://www.theschooloflife.com/paris/
-
-Quand il rentre de reportage, Ira Glass explique qu'il jette sur le papier ce qui l'a marqué, ce qu'il pense être les meilleurs moments de l'entretien qu'il vient d'avoir.
-
-En général, il faut compter une demi-dizaine d'items pour une heure d'interview. Cette façon de prendre ses repères lui sera par la suite bien utile. Souvent, il tient là l'ossature de l'histoire qu'il va pouvoir conter. Et si jamais il passe toute la journée dehors, eh bien il prend le temps de faire ça le soir, tellement c'est important.
-
-Je vais commencer par visionner la vidéo d'un trait, sans prendre de notes (de toute façon comme elle est en anglais il faut que je lise les sous-titres, ça va être dur de faire du *multitasking* sur ce coup-là). Je pourrais même aller jusqu'à me dire que c'est moi qui l'ai filmée, comme s'il s'agissait d'un spectacle présenté dans le monde réel, sur la scène d'un théâtre, par exemple. Il ne s'agit pas de faire des efforts de mémoire particuliers.
-
-Ensuite, dans la foulée, je vais faire de tête une liste de ce qui m'a marqué ou étonné, relever les passages que j'ai bien aimés ou qui m'ont au contraire affolé.
-
-Bien sûr, il s'agit là de quelque chose de très subjectif. On peut imaginer sans peine qu'il aurait autant de retours possibles que de spectateurs. Nous sommes uniques, nous ne verrions pas tous la même chose.
-
-Ca vous dirait de tenter le coup avec moi ?
-
-(Si l'anglais n'est pas votre tasse de thé vous pouvez ne regarder que les images en coupant le son. De toute façon, si l'on veut faire un travail sérieux, il faudra passer par là.)
-
-***
+## 
 
 Typiquement, Ira, lui, se retrouve à mener un travail d'écriture après avoir rapporté, une masse parfois conséquente d'enregistrements d'interviews.
 
