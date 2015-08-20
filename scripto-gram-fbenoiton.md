@@ -12,7 +12,7 @@ Scriptogram, le service qui publie le présent blog sur le Web, devait fermer se
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Je me disais que je pourrais mettre à profit les jours qui viennent pour exploiter directement ces notes dans ce blog avant qu'il ne ferme et avant qu'elles ne se perdent tout à fait. Cependant, comme le temps a passé, je ne suis pas sûr de pouvoir tout relire d'une part et retrouver à coup sûr ce que je voulais dire d'autre part.
+Je me disais que je pourrais mettre à profit les jours qui viennent pour exploiter directement ces notes dans ce blog avant qu'il ne ferme et avant qu'elles ne se perdent tout à fait. Cependant, comme le temps a passé, je doute déjà de pouvoir tout relire (déchiffrer d'une part et retrouver ce que je voulais dire d'autre part).
 
 ***
 
