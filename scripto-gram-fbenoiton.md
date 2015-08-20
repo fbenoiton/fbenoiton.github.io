@@ -1,24 +1,22 @@
 ## Quand tout ça s'arrêtera
 
-Au cours de la première moitié de cette année, j'ai essayé de noter, quasiment en temps réel, le plus de choses possibles sur ce que l'enfant me faisait endurer au quotidien.
+Au cours de la première moitié de cette année, j'ai essayé de relever, quasiment en temps réel, le plus de choses possible sur ce que l'enfant me faisait endurer.
 
-Il y a des épisodes spectaculaires, mais surtout une violence morale souterraine, indirecte et discrète, voire indétectable, qui se manifeste chaque jour. Cette violence procède par accumulation de petites choses qui, prises isolément, peuvent sembler dérisoires. Il est difficile d'en rendre compte, voire impossible.
+Il y a des épisodes spectaculaires, mais surtout les manifestations d'une violence morale souterraine, indirecte et discrète au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, peuvent sembler dérisoires.
 
-Bien souvent, j'ai dû décrire succintement dans mon cahier ce qui arrivait pour parer au plus pressé. Mais je n'ai pas pu tout retranscrire en temps et en heure dans mon journal de bord électronique, tellement ça allait trop vite. Ces notes restées orphelines doivent correspondre à des périodes où l'enfant se déchaîne.
+Bien souvent, j'ai dû noter de façon succinte dans mon cahier ce qui arrivait pour parer au plus pressé. Je n'ai pas pu tout retranscrire en temps et en heure dans mon journal de bord électronique, tellement ça allait trop vite parfois. Ces notes orphelines doivent correspondre à des pics d'activité de l'enfant.
 
-J'en ai identifié trois : une en mars, une en avril et une en mai.
-
-Suis à la défection de ses créateurs, Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
+Suite à la défection de ses créateurs, Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
 
 D'autre part, le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur.
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Je me disais donc que je pourrais mettre à profit répit et sursis pour rattraper mon retard directement dans ce blog, avant qu'il ne ferme et que mes notes ne se perdent à tout jamais. Comme le temps a passé, je doute déjà de pouvoir toutes les relire (les déchiffrer d'une part et retrouver ce que je voulais dire d'autre part).
+Je me disais donc que je pourrais mettre à profit ce répit et ce sursis pour rattraper mon retard directement dans ce blog, avant qu'il ne ferme et que mes notes ne se perdent à tout jamais. Comme le temps a passé, je doute déjà de pouvoir toutes les relire (les déchiffrer d'une part et retrouver ce que je voulais dire d'autre part).
 
 ***
 
-Et puis on ne peut pas prétendre prendre conscience de tout, tout de suite.
+Il est difficile d'en rendre compte, voire impossible. Voire indétectable. Et puis on ne peut pas prétendre prendre conscience de tout, tout de suite. J'ai identifié trois périodes : une en mars, une en avril et une en mai.
 
 L'enfant s'en est d'ailleurs servi contre moi, dénonçant le fait que je notais tout ce qu'il faisait, pour mieux passer pour la victime tout en jouant les bourreaux. C'est tellement facile et amusant. De quoi ressentir un grand pouvoir... [à partir du moment où je m'étais ouvert de l'échappatoire de l'écriture en thérapie familiale] Mais c'est bien injuste, parce que ce n'ai pas vrai, je ne note pas tout, pour la simple et bonne raison qu'il y a trop de choses ! 
 
