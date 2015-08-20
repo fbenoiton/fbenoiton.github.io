@@ -1,20 +1,26 @@
 ## Quand ça s'arrêtera
 
+Au cours de la première moitié de cette année, j'ai essayé au jour le jour de noter le plus de choses possibles sur ce que l'enfant me faisait endurer à la maison.
+
+Il y a des épisodes spectaculaires, mais aussi tout une violence morale souterraine, indirecte et discrète voire indétectable qui se déchaîne au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, paraissent dérisoires.
+
+Il est difficile voire impossible de rendre compte. Ce n'est mon premier essai !
+
+Bien souvent, j'ai dû prendre des notes succintes dans mon cahier pour parer au plus pressé. Je n'ai pas pu toutes les retranscrire dans mon journal de bord électronique. Celles restées orphelines correspondent à des périodes d'intense activité de l'enfant.
+
 Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015. Mais la [date fatidique][1] a été repoussée d'un mois, juste avant que le délai n'expire. D'autre part, le fils de ma femme ne va pas encore revenir tout de suite de son séjour sur la Côte d'Azur. 
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Au cours de la première moitié de cette année, j'ai essayé au jour le jour de noter le plus de choses possibles sur ce que l'enfant me faisait endurer à la maison. Bien sûr, il y a des épisodes spectaculaires, mais aussi tout une violence morale souterraine, indirecte et discrète qui se déchaîne au quotidien, et dont il est très difficle de rendre compte.
-
-Il n'est pas facile de partager avec des tiers cette accumulation de petites choses qui, prisent isolément, y compris par des professionnels cheveronnés, semblent dérisoires et accréditent la thèse toujours prête à être servie par l'enfant que le problème vient de moi et qu'il est une victime. 
-
-Quoi qu'il en soit, aujourd'hui je me retrouve avec des notes prises dans un cahier pour parer au plus pressé, et que je n'ai jamais eu le temps de retranscrire par la suite mon journal de bord électronique. Cela correspond à des périodes de fébrile activité de la part de l'enfant à mon encontre.
-
-Je me disais que je pourrais mettre ce double répit à profit pendant les jours qui viennent, en exploitant ces notes orphelines et parfois trop succintes directement dans ce blog avant qu'elles ne se perdent tout à fait. Mais déjà, comme le temps a passé, je ne suis pas sûr de pouvoir toujours me relire et retrouver ce que je voulais dire.
+Je me disais que je pourrais mettre à profit les jours qui viennent pour exploiter directement ces notes dans ce blog avant qu'il ne ferme et avant qu'elles ne se perdent tout à fait. Cependant, comme le temps a passé, je ne suis pas sûr de pouvoir me relire et retrouver à coup sûr ce que je voulais dire.
 
 ***
 
+3 périodes notes orphelines : mars, avril et mai.
+
 L'enfant s'en est d'ailleurs servi contre moi, dénonçant le fait que je notais tout ce qu'il faisait, pour mieux passer pour la victime tout en jouant les bourreaux. C'est tellement facile et amusant. De quoi ressentir un grand pouvoir... [à partir du moment où je m'étais ouvert de l'échappatoire de l'écriture en thérapie familiale] Mais c'est bien injuste, parce que ce n'ai pas vrai, je ne note pas tout, pour la simple et bonne raison qu'il y a trop de choses ! 
+
+Il est ensuite aisé pour l'enfant pour faire accréditer la thèse toute prête que le problème vient de moi et qu'il est une victime. Même des professionnels cheveronnés peuvent s'y laisser prendre.
 
 Avant de parler avec vous de l'avenir de ce blog. C'est comme une série télé qui perdrait ses acteurs, pour une raison ou une autre : est-ce qu'on le remplace purement et simplment ou pas, et quel artifice scénaristique on utilise dans ce dernier cas ? Bref, est-ce que je recrée la même chose ailleurs, ou je pars sur autre chose j'arrête là tout simplement ? Nous verrons cela en temps voulu.
 
@@ -24,4 +30,4 @@ Il n'a pas son pareil pour faire croire à autrui que je le rejette, alors que, 
 
 L'exemple de la série Dallas...
 d'ailleurs regardé avec Flo samedi soir 15/8 film Wenders *Don't come knocking* sur le replay d'Arte
-3 périodes notes orphelines : mars, avril et mai.
+
