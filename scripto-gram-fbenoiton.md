@@ -4,19 +4,21 @@ Au cours de la première moitié de cette année, j'ai essayé au jour le jour d
 
 Il y a des épisodes spectaculaires, mais aussi tout une violence morale souterraine, indirecte et discrète voire indétectable qui se déchaîne au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, paraissent dérisoires.
 
-Il est difficile voire impossible de rendre compte. Ce n'est mon premier essai !
+Il est difficile voire impossible d'en rendre compte. Ce n'est mon premier essai !
 
-Bien souvent, j'ai dû prendre des notes succintes dans mon cahier pour parer au plus pressé. Je n'ai pas pu toutes les retranscrire dans mon journal de bord électronique. Celles restées orphelines correspondent à des périodes d'intense activité de l'enfant.
+Bien souvent, j'ai dû prendre des notes succintes dans mon cahier pour parer au plus pressé. Je n'ai pas pu toutes les retranscrire dans mon journal de bord électronique, en les rayant au fur et à mesure. Celles restées orphelines correspondent probablement à des périodes d'intense activité de l'enfant.
 
 Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015. Mais la [date fatidique][1] a été repoussée d'un mois, juste avant que le délai n'expire. D'autre part, le fils de ma femme ne va pas encore revenir tout de suite de son séjour sur la Côte d'Azur. 
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Je me disais que je pourrais mettre à profit les jours qui viennent pour exploiter directement ces notes dans ce blog avant qu'il ne ferme et avant qu'elles ne se perdent tout à fait. Cependant, comme le temps a passé, je ne suis pas sûr de pouvoir me relire et retrouver à coup sûr ce que je voulais dire.
+Je me disais que je pourrais mettre à profit les jours qui viennent pour exploiter directement ces notes dans ce blog avant qu'il ne ferme et avant qu'elles ne se perdent tout à fait. Cependant, comme le temps a passé, je ne suis pas sûr de pouvoir tout relire d'une part et retrouver à coup sûr ce que je voulais dire d'autre part.
 
 ***
 
 3 périodes notes orphelines : mars, avril et mai.
+
+***
 
 L'enfant s'en est d'ailleurs servi contre moi, dénonçant le fait que je notais tout ce qu'il faisait, pour mieux passer pour la victime tout en jouant les bourreaux. C'est tellement facile et amusant. De quoi ressentir un grand pouvoir... [à partir du moment où je m'étais ouvert de l'échappatoire de l'écriture en thérapie familiale] Mais c'est bien injuste, parce que ce n'ai pas vrai, je ne note pas tout, pour la simple et bonne raison qu'il y a trop de choses ! 
 
