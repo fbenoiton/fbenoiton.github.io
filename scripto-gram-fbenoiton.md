@@ -2,7 +2,7 @@
 
 Au cours de la première moitié de cette année, j'ai essayé de relever tout ce que l'enfant pouvait me faire endurer.
 
-Il y a des épisodes spectaculaires, mais surtout les manifestations d'une violence morale souterraine et indirecte au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, peuvent sembler dérisoires.
+Il y a des épisodes spectaculaires, mais surtout les manifestations d'une violence morale souterraine et indirecte au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, paraissent dérisoires.
 
 Bien souvent, j'ai dû noter de façon succinte dans mon cahier ce qui arrivait pour parer au plus pressé. Je n'ai même pas pu tout retranscrire en temps et en heure dans mon journal de bord électronique, tellement ça allait trop vite parfois. J'imagine que ces notes restées orphelines correspondent à des pics d'activité de l'enfant.
 
@@ -10,7 +10,7 @@ Scriptogram, le service qui publie le présent blog sur le Web, devait fermer se
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur. Je me disais que je pourrais mettre à profit répit et sursis pour rattraper enfin mon retard directement dans ce blog, histoire de pas finir par perdre mes notes. Dans la mesure où, déjà, j'arriverais à me relire.
+Le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur. Je me disais donc que je pourrais mettre à profit répit et sursis pour rattraper enfin mon retard, directement dans ce blog. Histoire de pas finir par perdre mes notes, dans la mesure où, déjà, j'arriverais à me relire.
 
 ***
 
