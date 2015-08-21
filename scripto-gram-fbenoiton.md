@@ -6,11 +6,11 @@ Il y a des épisodes spectaculaires, mais surtout les manifestations d'une viole
 
 Bien souvent, j'ai dû noter de façon succinte dans mon cahier ce qui arrivait pour parer au plus pressé. Je n'ai même pas pu tout retranscrire en temps et en heure dans mon journal de bord électronique, tellement ça allait trop vite parfois. J'imagine que ces notes restées orphelines correspondent à des pics d'activité de l'enfant.
 
-D'autre part, Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
+Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Or peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Comme le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur, je me disais que je pourrais mettre à profit répit et sursis pour rattraper mon retard directement dans ce blog. Dans la mesure où, déjà, j'arriverais à les relire (les déchiffrer d'une part et retrouver ce que je voulais dire d'autre part).
+Le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur. Je me disais que je pourrais mettre à profit répit et sursis pour rattraper enfin mon retard directement dans ce blog, histoire de pas finir par perdre mes notes. Dans la mesure où, déjà, j'arriverais à me relire.
 
 ***
 
