@@ -1,18 +1,4 @@
-## Quand tout ça s'arrêtera
-
-Au cours de la première moitié de cette année, j'ai essayé de relever tout ce que l'enfant pouvait me faire endurer.
-
-Il y a des épisodes spectaculaires, mais surtout les manifestations d'une violence morale souterraine et indirecte au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, paraissent dérisoires.
-
-Souvent, j'ai dû noter de façon succinte dans mon cahier ce qui arrivait, parant au plus pressé. Je n'avais pas toujours le temps ensuite de tout retranscrire dans mon journal électronique personnel, tellement ça allait trop vite parfois. J'imagine que ces notes restées orphelines correspondent à des pics d'activité de l'enfant.
-
-Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Or, peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
-
-[1]: http://scriptogr.am/blog/post/important-information
-
-Le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur. Je me disais donc que je pourrais mettre à profit répit et sursis pour rattraper enfin mon retard, directement dans ce blog. Histoire que mes notes ne finissent pas par se perdre, dans la mesure où, déjà, j'arriverais à me relire.
-
-***
+## 
 
 Il est difficile d'en rendre compte, voire impossible. Voire indétectable. Et puis on ne peut pas prétendre prendre conscience de tout, tout de suite. J'ai identifié trois périodes : une en mars, une en avril et une en mai.
 
