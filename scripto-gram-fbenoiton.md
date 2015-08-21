@@ -1,18 +1,16 @@
 ## Quand tout ça s'arrêtera
 
-Au cours de la première moitié de cette année, j'ai essayé de relever, quasiment en temps réel, le plus de choses possible sur ce que l'enfant me faisait endurer.
+Au cours de la première moitié de cette année, j'ai essayé de relever tout ce que l'enfant pouvait me faire endurer.
 
-Il y a des épisodes spectaculaires, mais surtout les manifestations d'une violence morale souterraine, indirecte et discrète au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, peuvent sembler dérisoires.
+Il y a des épisodes spectaculaires, mais surtout les manifestations d'une violence morale souterraine et indirecte au quotidien. Cette violence procède par accumulation de petites choses qui, prises isolément, peuvent sembler dérisoires.
 
-Bien souvent, j'ai dû noter de façon succinte dans mon cahier ce qui arrivait pour parer au plus pressé. Je n'ai pas pu tout retranscrire en temps et en heure dans mon journal de bord électronique, tellement ça allait trop vite parfois. Ces notes orphelines doivent correspondre à des pics d'activité de l'enfant.
+Bien souvent, j'ai dû noter de façon succinte dans mon cahier ce qui arrivait pour parer au plus pressé. Je n'ai même pas pu tout retranscrire en temps et en heure dans mon journal de bord électronique, tellement ça allait trop vite parfois. J'imagine que ces notes restées orphelines correspondent à des pics d'activité de l'enfant.
 
-Suite à la défection de ses créateurs, Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
-
-D'autre part, le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur.
+D'autre part, Scriptogram, le service qui publie le présent blog sur le Web, devait fermer ses portes le 14 août 2015, faute de repreneur. Peu avant l'expiration du délai, la [date fatidique][1] a été repoussée d'un mois.
 
 [1]: http://scriptogr.am/blog/post/important-information
 
-Je me disais donc que je pourrais mettre à profit ce répit et ce sursis pour rattraper mon retard directement dans ce blog, avant qu'il ne ferme et que mes notes ne se perdent à tout jamais. Comme le temps a passé, je doute déjà de pouvoir toutes les relire (les déchiffrer d'une part et retrouver ce que je voulais dire d'autre part).
+Comme le fils de ma femme ne va pas revenir tout de suite de son séjour sur la Côte d'Azur, je me disais que je pourrais mettre à profit répit et sursis pour rattraper mon retard directement dans ce blog. Dans la mesure où, déjà, j'arriverais à les relire (les déchiffrer d'une part et retrouver ce que je voulais dire d'autre part).
 
 ***
 
