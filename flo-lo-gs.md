@@ -6,7 +6,7 @@ Heureusement, et je ne me suis rendu compte qu'après coup que j'avais eu chaud,
 
 Ca ne m'a pas traversé l'esprit à ce moment-là que de ne plus avoir accès à mon compte allait m'interdire l'accès à mes relevés accessibles en ligne, sur le site, comme je n'ai jamais pris soin de les télécharger à chaque fois, ni de les imprimer à mes frais.
 
-Mon dernier "e-relevé" dernier cri datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais j'ai encore naïvement pensé qu'il n'était pas encore arrivé. Comme dirait Daniel Cazal pendant le commentaire de la demi-finale de tennis du tournoi de Wimbledon en 1988 entre Stefan Edberg et Milosclav Mecir, qui glisse à Jean-Paul Loth à propos du premier, *"Il comprend vite mais il a besoin de réfléchir longtemps !"*.
+Mon dernier "e-relevé" dernier cri datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais j'ai encore naïvement pensé qu'il n'était pas encore arrivé. Comme le glisserait Daniel Cazal à Jean-Paul Loth pendant le commentaire de la demi-finale de tennis du tournoi de Wimbledon en 1988, à propos de Stefan Edberg opposé à  Miloslav Mecir, *"Il comprend vite mais il a besoin de réfléchir longtemps !"*.
 
 Le solde, le solde !
 
