@@ -12,7 +12,7 @@ Le solde, le solde !
 
 Il était négatif, pas de surprise de ce côté-là, mais le débit était de seulement 44,73 € au 3 juillet 2015. Et il restait dans la limite de mon découvert autorisé de 100 € !
 
-L'après-midi était à présent bien avancée. Je n'ai pas trouvé de site Web appartenant à l'étude d'huissier. Il ne me restait plus qu'à arrêter là mes recherche et appeler, Google m'ayant quand même appris qu'elle était ouverte jusqu'à 18 h 30.
+L'après-midi était à présent bien avancée. Je n'ai pas trouvé de site Web pour l'étude d'huissier. Il ne me restait plus qu'à arrêter là mes recherches et appeler, Google m'ayant quand même appris que la société d'exercice libéral à responsabilité limitée (SELSARL) était ouverte jusqu'à 18 h 30.
 
 ***
 
