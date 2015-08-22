@@ -1,18 +1,18 @@
 ## Le deuxième indice
 
-N'ayant pas accès à mon compte en banque sur l'Internet, je n'avais plus qu'à consulter mes derniers relevés. J'avais accepté d'abandonner le papier en optant pour recevoir mes relevés sous forme électronique le 12 décembre 2012.
+N'ayant pas accès à mon compte en banque sur le Web, je n'avais plus qu'à consulter mes derniers relevés. J'avais accepté d'abandonner le papier en optant pour les relevés sous forme électronique le 12 décembre 2012.
 
-Heureusement, et je ne me suis rendu compte qu'après coup que j'avais eu chaud, j'avais aussi souscrit au service Digiposte de coffre-fort électronique du groupe La Poste dans le même temps, ce qui fait que mes relevés étaient automatiquement aussi stockés là-bas. 
+Heureusement, et je ne me suis rendu compte qu'après coup que j'avais eu chaud, j'avais aussi souscrit le service Digiposte de coffre-fort électronique du groupe La Poste, ce qui fait que mes relevés étaient automatiquement aussi stockés là-bas.
 
-Ca ne m'a pas traversé l'esprit à ce moment-là que de ne plus avoir accès à mon compte allait m'interdire l'accès à mes relevés accessibles en ligne, sur le site, comme je n'ai jamais pris soin de les télécharger à chaque fois, ni de les imprimer à mes frais.
+Ca ne m'a pas traversé l'esprit que j'avais perdu l'accès à mes relevés en même temps que celui à mon compte en ligne. Je n'ai jamais pris soin de les télécharger au fur et à mesure, ni de les imprimer.
 
-Mon dernier "e-relevé" dernier cri datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais j'ai encore naïvement pensé qu'il n'était pas encore arrivé. Comme le glisserait Daniel Cazal à Jean-Paul Loth pendant le commentaire de la demi-finale de tennis du tournoi de Wimbledon en 1988, à propos de Stefan Edberg opposé à  Miloslav Mecir, *"Il comprend vite mais il a besoin de réfléchir longtemps !"*.
+Le dernier "e-relevé" datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais je me suis dit qu'il n'était pas encore arrivé. Comme le glisserait Daniel Cazal à Jean-Paul Loth, pendant le commentaire de la demi-finale de tennis du tournoi de Wimbledon en 1988, à propos de Stefan Edberg qui finirait par venir à bout de Miloslav Mecir, *"Il comprend vite mais il a besoin de réfléchir longtemps !"*.
 
 Le solde, le solde !
 
 Il était négatif, pas de surprise de ce côté-là, mais le débit était de seulement 44,73 € au 3 juillet 2015. Et il restait dans la limite de mon découvert autorisé de 100 € !
 
-L'après-midi était à présent bien avancée. Je n'ai pas trouvé de site Web pour l'étude d'huissier. Il ne me restait plus qu'à arrêter là mes recherches et appeler, Google m'ayant quand même appris que la société d'exercice libéral à responsabilité limitée (SELSARL) était ouverte jusqu'à 18 h 30.
+L'après-midi était à présent bien avancée. Je n'ai pas trouvé de site web pour l'étude d'huissier. Il ne me restait plus qu'à arrêter là mes recherches et appeler, Google m'ayant quand même appris que la société d'exercice libéral à responsabilité limitée (SELSARL) était ouverte jusqu'à 18 h 30.
 
 ***
 
