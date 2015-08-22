@@ -1,14 +1,18 @@
 ## Deuxième indice
 
-Je n'avais plus qu'à consulter mes derniers relevés de compte mensuels, pour avoir une petite idée de dans quelle panade j'étais, après le message de l'étude d'huissiers. Et je me rends compte maintenant que j'ai eu chaud. En effet, j'ai accepté d'opter pour recevoir les relevés sous forme électronique le 12 décembre 2012.
+N'ayant pas accès à mon compte en banque sur l'Internet, je n'avais plus qu'à consulter mes derniers relevés. J'avais accepté d'abandonner le papier en optant pour recevoir mes relevés sous forme électronique le 12 décembre 2012.
 
-Heureusement, j'ai souscrit au service Digiposte de coffre-fort électronique du groupe La Poste dans le même temps, ce qui fait que mes relevés sont aussi stockés là-bas, parce que comme je n'ai plus d'accès à mon compte, je n'ai donc plus accès à mes relevés stockés sur le site, comme je n'ai jamais pris soin de les télécharger à chaque fois (ni de les imprimer à mes frais...).
+Heureusement, et je ne me suis rendu compte qu'après coup que j'avais eu chaud, j'avais aussi souscrit au service Digiposte de coffre-fort électronique du groupe La Poste dans le même temps, ce qui fait que mes relevés étaient automatiquement aussi stockés là-bas. 
 
-Mon dernier "e-relevé" reçu datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais je me suis encore naïvement dit qu'il n'était pas encore arrivé. Un deuxième indice qui aurait pu me faire comprendre ce qu'il s'était vraiment passé.
+Ca ne m'a pas traversé l'esprit à ce moment-là que de ne plus avoir accès à mon compte allait m'interdire l'accès à mes relevés accessibles en ligne, sur le site, comme je n'ai jamais pris soin de les télécharger à chaque fois, ni de les imprimer à mes frais.
 
-L'adresse officielle est bien encore celle du Mans. Je n'avais jamais fait le changement d'adresse, et en déménagement à Mamers en novembre dernier, ma femme et moi n'avions mis en place aucune suivi du courrier. Mais ce n'est pas bien sûr ce que j'ai regardé en premier. Le solde, le solde !
+Mon dernier "e-relevé" datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais j'ai encore naïvement pensé qu'il n'était pas encore arrivé. Un deuxième indice qui aurait pu me faire comprendre ce qu'il s'était vraiment passé.
 
-Il était débiteur, pas de surprise, mais de seulement 44,73 € au 3 juillet. Et il reste dans la limite de mon découvert autorisé de 100 € ! En remontant un peu le temps rapidement, je suis visiblement passé négatif entre mars et avril, et le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble.
+L'adresse officielle est bien encore celle du Mans. Je n'avais jamais fait le changement d'adresse, et en déménagement à Mamers en novembre dernier, ma femme et moi n'avions mis en place aucune suivi du courrier.
+
+Mais ce n'est pas bien sûr ce que j'ai regardé en premier. Le solde, le solde !
+
+Il était débiteur, pas de surprise, mais de seulement 44,73 € au 3 juillet 2015. Et il reste dans la limite de mon découvert autorisé de 100 € ! En remontant un peu le temps rapidement, je suis visiblement passé négatif entre mars et avril, et le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble.
 
 Voilà, j'avais fait à peu près tout ce qui était en mon pouvoir. L'après-midi est maintenant bien avancée. Je n'ai pas trouvé de site Web pour l'étude. Il ne me restait plus qu'à l'appeler, Google m'ayant quand même appris qu'elle était ouverte jusqu'à 18 h 30.
 
