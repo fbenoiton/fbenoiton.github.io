@@ -1,22 +1,4 @@
-## Le deuxième indice
-
-N'ayant pas accès à mon compte en banque sur le Web, je n'avais plus qu'à consulter mes derniers relevés. J'avais accepté d'abandonner le papier en optant pour les relevés sous forme électronique le 12 décembre 2012.
-
-Heureusement, et je ne me suis rendu compte qu'après coup que j'avais eu chaud, j'avais aussi souscrit le service Digiposte de coffre-fort électronique du groupe La Poste, ce qui fait que mes relevés étaient automatiquement aussi stockés là-bas.
-
-Ca ne m'a pas traversé l'esprit que j'avais perdu l'accès à mes relevés en même temps que celui à mon compte en ligne. Je n'ai jamais pris soin de les télécharger au fur et à mesure, ni de les imprimer.
-
-Le dernier "e-relevé" datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais je me suis dit qu'il n'était pas encore arrivé. Comme le glisserait Daniel Cazal d'Antenne 2 à Jean-Paul Loth, pendant le commentaire de la demi-finale de tennis du tournoi de Wimbledon en 1988, à propos de Stefan Edberg qui finirait par venir à bout de Miloslav Mecir, *"Il comprend vite mais il a besoin de réfléchir longtemps !"* ([à 5 minutes et 40 secondes]).
-
-[1]: https://youtu.be/zpIWZ_mi-P4?t=5m30s
-
-Le solde, le solde !
-
-Il était négatif, pas de surprise de ce côté-là, mais le débit était de seulement 44,73 € au 3 juillet 2015. Et il restait dans la limite de mon découvert autorisé de 100 € !
-
-L'après-midi était à présent bien avancée. Je n'ai pas trouvé de site web pour l'étude d'huissier. Il ne me restait plus qu'à arrêter là mes recherches et appeler, Google m'ayant quand même appris que la société d'exercice libéral à responsabilité limitée (SELSARL) était ouverte jusqu'à 18 h 30.
-
-***
+## 
 
 16 h 50 : toutes les lignes de l'étude d'huissiers de justice Anquetil-Lelièvre & associés sont occupées... ● Idem à 17 heures. ● Eu une personne vers 17 h 30, restée évasive concernant mon statut à la BP, ils ont juste une somme de 71,13 € à recouvrir (envoyé un courrier début août à l'adresse du Mans). Je crois que je n'ai plus de compte bancaire : explique pourquoi pas de relevé début août et impossibilité de se connecter en ligne. Jamais eu de messages, juste des appels sur le portable j'imagine sans laisser de messages, aucun courrier électronique (pas suffisamment sûr ?). En attente réexpédition courrier de l'étude (effectuée informatiquement pendant l'appel [toute-puissance]). ● Question en suspens : La Poste Telecom. D'ailleurs quelle adresse ont-ils ? En tout cas Flo m'a dit que je n'avais pas besoin de garder la ligne. ● En fait étude à Coutances (il faudrait réécouter le message), plus grande ville la plus proche d'Agon-Coutainville... ● (Et le numéro de carte CB donné à AWS...)
 
