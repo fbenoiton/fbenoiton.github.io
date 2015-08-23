@@ -8,7 +8,7 @@ Ca ne m'a pas traversé l'esprit que j'avais perdu l'accès à mes relevés en m
 
 Le dernier "e-relevé" datait du 7 juillet denrier. Il aurait dû aussi y avoir celui d'août, mais je me suis dit qu'il n'était pas encore arrivé. Comme le glisserait Daniel Cazal d'Antenne 2 à Jean-Paul Loth, pendant le commentaire de la demi-finale de tennis du tournoi de Wimbledon en 1988, à propos de Stefan Edberg qui finirait par venir à bout de Miloslav Mecir, *"Il comprend vite mais il a besoin de réfléchir longtemps !"* ([à 5 minutes et 40 secondes]).
 
-[1]: https://www.youtube.com/watch?v=zpIWZ_mi-P4
+[1]: https://youtu.be/zpIWZ_mi-P4?t=5m30s
 
 Le solde, le solde !
 
