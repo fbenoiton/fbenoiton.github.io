@@ -1,10 +1,14 @@
 ## Je ne plaisante plus
 
-La première période de surcharge informationnelle débute le 10 mars 2015, c'était un mardi. Visiblement je n'ai pu dormir que de 1 heure à 5 h 40 du matin cette nuit-là. Ce n'était pas inhabituel. D'ailleurs le sommeil et l'atteinte au sommeil d'autrui est une thématique qui traverse l'ensemble de ma coexistence avec l'enfant, depuis le début de l'année 2013. J'ai le sommeil beaucoup plus léger que ma femme, et je peux le perdre à cause du stress, des ruminations par rapport à ce que je peux subir au jour le jour, ou tout simplement par le bruit que peux faire l'enfant quand j'essaie de me reposer.
+La première période de surcharge informationnelle débute le 10 mars 2015, c'était un mardi. Visiblement je n'ai pu dormir que de 1 heure à 5 h 40 du matin cette nuit-là. Ce n'était pas inhabituel. D'ailleurs le sommeil et l'atteinte au sommeil d'autrui est une thématique qui traverse l'ensemble de ma coexistence avec l'enfant, depuis le début de l'année 2013. J'ai le sommeil beaucoup plus léger que ma femme, et je peux le perdre à cause du stress, des ruminations par rapport à ce que je peux subir au jour le jour, ou tout simplement par tous les stratagèmes pour faire du bruit l'air de rien que peux inventer l'enfant quand j'essaie de me reposer.
 
-Parmi les conseils donnés dans [How Emotionally Intelligent People Handle Toxic People][1] (Comment les personnes émotionnellement intelligentes gèrent les personnes toxiques), figure celui de passer de bonnes nuits de sommeil, afin d'être alerte et de garder la tête claire au milieu des difficultés. Mémoire, attention et maîtrise de soi sont ainsi favorisés. C'est donc beaucoup plus difficile à mettre en application quand on se retrouve à vivre sous le même toit que le perturbateur !
+Parmi les conseils donnés dans [How Emotionally Intelligent People Handle Toxic People][1] (Comment les personnes émotionnellement intelligentes gèrent les personnes toxiques), figure celui de passer de bonnes nuits de sommeil, afin d'être alerte et de garder la tête claire au milieu des difficultés. Mémoire, attention et maîtrise de soi sont ainsi favorisés, ce qui favorise cette prise de distance avec les comportements toxiques, la nécessité de savoir les mettre en perspective. C'est donc beaucoup plus difficile à mettre en application quand on se retrouve à vivre sous le même toit que le perturbateur !
 
 [1]: http://www.talentsmart.com/articles/How-Emotionally-Intelligent-People-Handle-Toxic-People-1028629190-p-1.html
+
+Donc là j'aurais déjà un premier sujet si j'optais pour une approche thématique plutôt que chronologique du gros problème qui se pose à moi depuis deux ans et demi, si je voulais convaincre de l'animosité exceptionnelle de l'enfant à mon égard, qui est à mon sens de l'ordre du trouble psychiatrique ou pas loin, vu son intensité et sa durée.
+
+Je réalise maintenant que j'ai aussi des notes électroniques pour la journée du 10 mars 2015. Et en fait il n'y a pas grand mystère à toute cette surcharge informationnelle, puisque nous sommes dans une période où l'enfant s'est mis à jouer avec le feu dans la maison (et un peu chez les voisin aussi), au sens propre. Et je n'avais fait qu'après coup le rapprochement avec le fait que cela pouvait être liée à, début mars, la date du premier anniversaire de bébé Soa.
 
 ***
 
