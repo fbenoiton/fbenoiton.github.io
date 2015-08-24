@@ -8,7 +8,9 @@ Parmi les conseils donnés dans [How Emotionally Intelligent People Handle Toxic
 
 Donc là j'aurais déjà un premier sujet si j'optais pour une approche thématique plutôt que chronologique du gros problème qui se pose à moi depuis deux ans et demi, si je voulais convaincre de l'animosité exceptionnelle de l'enfant à mon égard, qui est à mon sens de l'ordre du trouble psychiatrique ou pas loin, vu son intensité et sa durée.
 
-Je réalise maintenant que j'ai aussi des notes électroniques pour la journée du 10 mars 2015. Et en fait il n'y a pas grand mystère à toute cette surcharge informationnelle, puisque nous sommes dans une période où l'enfant s'est mis à jouer avec le feu dans la maison (et un peu chez les voisin aussi), au sens propre. Et je n'avais fait qu'après coup le rapprochement avec le fait que cela pouvait être liée à, début mars, la date du premier anniversaire de bébé Soa.
+Je réalise maintenant que j'ai aussi des notes électroniques pour la journée du 10 mars 2015. Et en fait il n'y a pas grand mystère à toute cette surcharge informationnelle, à l'affolement des télescripteurs, puisque nous sommes dans une période mémorable où l'enfant s'est mis à jouer avec le feu dans la maison (et un peu chez les voisin aussi), au sens propre. Et je n'avais fait qu'après coup le rapprochement avec le fait que cela pouvait être lié à, début mars, la date du premier anniversaire du bébé que j'ai eu avec la maman de l'enfant.
+
+Je ne sais pas où donner de la tête ? Par quoi commencer ? Je sens que je vais faire un court-circuit (au sens figuré).
 
 ***
 
