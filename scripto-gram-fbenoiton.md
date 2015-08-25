@@ -16,7 +16,7 @@ D'après mon agenda électronique, j'ai trouvé le moyen de m'aérer une heure l
 
 Je pourrais faire des recherches dans mon propre système d'information, mais ce n'est pas l'objet de ce post. En tout cas, depuis, ma femme est la seule à sortir emprunter des ouvrages. D'ailleurs je remarque que tous ses prêts sont en retard, alors j'en profite pour les prolonger à distance jusqu'au 28 août. En tout cas l'enfant s'est beaucoup amusé cette année avec le système d'emprunts, finissant par sortir des titres  au nez et à la barbe des charmantes bibliothécaires pour mieux déjouer les limites que nous avions posées concernant ses loisirs.
 
-Bon, je ne vais jamais y arriver. Je dois m'en tenir au plan initial : les notes restées en plan de mon petit cahier rouge Clairefontaine, spirales et petits carreaux 180 pages, que m'avait donné ma femme peu avant que nous ne déménagions du Mans, parce que j'avais épuisé le bloc-notes de mon conférencier. Il n'était pas tout à fait neuf, je crois.
+Bon, je ne vais jamais y arriver. Je dois m'en tenir au plan initial : les notes restées en plan de mon petit cahier rouge Clairefontaine, spirales et petits carreaux 180 pages, que m'avait donné ma femme peu avant que nous ne déménagions du Mans, parce que j'avais épuisé le bloc-notes de mon conférencier. Il avait déjà un peu servi, je crois, et on avait arraché les pages.
 
 ***
 
