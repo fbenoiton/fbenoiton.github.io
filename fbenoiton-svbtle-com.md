@@ -1,4 +1,4 @@
-##
+## Entreprise sans argent
 
 J'ai de nouveau reçu de l'administration fiscale le formulaire à retourner concernant les caractéristiques des locaux que j'utilise *"pour les besoins de mon activité professionnelle"*, c'est-à-dire, en l'occurrence, mon nouveau domicile. Le document me semble moins écrasant à remplir qu'il y a deux mois, même si on ne peut pas dire que ma situation s'est améliorée, puisque je n'ai plus de compte bancaire. D'un autre côté mon chiffres d'affaires est toujours nul depuis deux ans et je crois savoir que réglementairement il n'est plus toléré d'utiliser son compte bancaire personnel pour son activité de travailleur indépendant, qu'il faut maintenant deux comptes séparés. En tout cas je crois qu'il ne faut plus trop que je tarde.
 
