@@ -14,7 +14,7 @@ Peut-être la partie de l'intervention la plus intéressante, mais qui je trouve
 
 Alors je me demande si ce n'est pas là qu'il faut être pour être dans le coup, au moins dans le domaine scientifique, pour observer et comprendre l'avenir. C'est là où je suis déjà, et depuis un bon moment, parce qu'avant d'être au RSA aujourd'hui j'étais déjà il y a 20 ans au RMI. Est-ce que je ne devrais pas mieux de ne pas chercher à regagner le circuit économique et me concentrer sur l'étude de notions telles que le revenu de base aussi appelé revenu existenciel ou universel, et employer mes ressources à me défendre et défendre ces populations qui existent déjà, jugées nuisibles mais déjà jugées par d'autres comme absolument nécessaires à la bonne marche du monde, tout commes les banquiers, les médecins et les ingénieurs auraient besoins des artistes.
 
-Mais l'un n'empêche pas l'autre, et avoir le cul entre deux chaises est peut-être le meilleur point d'observation, même si cela implique de pratiquer une sorte de grand écart au quotidien, dans cet entre-deux mondes.
+Mais l'un n'empêche pas l'autre, et avoir le cul entre deux chaises est peut-être le meilleur point d'observation, même si cela implique de pratiquer une sorte de grand écart au quotidien, dans cet entre-deux mondes, faisant du chiffre d'affaires mais pas assez, comme dans mes dernières années de correspondant local de presse.
 
 
 
