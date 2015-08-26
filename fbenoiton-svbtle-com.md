@@ -6,4 +6,15 @@ Il faudrait d'autant plus que je règle aussi la question du compte bancaire que
 
 En tout cas je sens confusément que pour résoudre mes problèmes d'argent, et dans la mesure où je viens d'être inscrit au fichier des incidents de remboursement des crédits aux particuliers (FICP) pour la deuxième fois en 20 ans, je dois sans plus tarder, et c'est la première chose à faire, examiner, passer au crible mon rapport à l'argent, avant d'envisager quoi que ce soit d'autre et d'imaginer un plan.
 
+La présentation TED [What explains the rise of humans][1], que je m'étais mise de côté, ne me semble plus aussi prometteuse maintenant que je l'ai regardée. L'orateur place l'argent comme l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, au contraire de Dieu. L'imagination, pour le meilleur et pour le pire, serait ce qui nous différencie de tous les autres animaux, et de les surclasser (collectivement, nous valons moins qu'un chimpanzé individuellement) et de dominer la planète. Depuis notre préhistoire, nous nous sommes bâti une réalité fictionnelle au-dessus de la réalité objective, composée par exemple d'entités fictives comme les nations ou les grandes entreprises. Et c'est l'imagination qui nous permet donc de coopérer de façon transparente à une très large échelle, sans avoir besoin, sans la limite de devoir se connaître personnellement les uns les autres (je ne connais pas toutes les personnes qui ont finalement permis que je tape ces mots sur l'ordinateur que j'utilise).
+
+[1]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans
+
+Peut-être la partie de l'intervention la plus intéressante, mais qui je trouve décrédibilise un peu tout ce qui vient d'être dit tant les réponses sont faibles, se situe-t-elle à la marge, quand l'orateur répond à quelques questions du maître de cérémonie à l'issue de son monologue. Il est question, avec la montée en puissance de l'automatisation, du creusement des inégalités et la constituion d'une toute nouvelle classe de population inutile et pauvre.
+
+Alors je me demande si ce n'est pas là qu'il faut être pour être dans le coup, au moins dans le domaine scientifique, pour observer et comprendre l'avenir. C'est là où je suis déjà, et depuis un bon moment, parce qu'avant d'être au RSA aujourd'hui j'étais déjà il y a 20 ans au RMI. Est-ce que je ne devrais pas mieux de ne pas chercher à regagner le circuit économique et me concentrer sur l'étude de notions telles que le revenu de base aussi appelé revenu existenciel ou universel, et employer mes ressources à me défendre et défendre ces populations qui existent déjà, jugées nuisibles mais déjà jugées par d'autres comme absolument nécessaires à la bonne marche du monde, tout commes les banquiers, les médecins et les ingénieurs auraient besoins des artistes.
+
+Mais l'un n'empêche pas l'autre, et avoir le cul entre deux chaises est peut-être le meilleur point d'observation, même si cela implique de pratiquer une sorte de grand écart au quotidien, dans cet entre-deux mondes.
+
+
 
