@@ -1,30 +1,28 @@
-## La coopération et l'argent
+## Rendez-vous dans 30 ans
 
-J'ai de nouveau reçu de l'administration fiscale le formulaire à retourner concernant les caractéristiques des locaux que j'utilise *"pour les besoins de mon activité professionnelle"*, c'est-à-dire mon nouveau domicile en ce qui me concerne. Le document me semble moins écrasant à remplir qu'il y a deux mois. Je pense qu'il ne faut plus trop que je tarde.
+J'ai de nouveau reçu de l'administration fiscale le formulaire à remplir concernant les caractéristiques des locaux que j'utilise *"pour les besoins de mon activité professionnelle"*. Il s'agit de mon nouveau domicile, en ce qui me concerne.
 
-Depuis ma situation ne s'est pas améliorée, puisque je n'ai plus de compte bancaire (le premier épisode de la saison 1 de [Journal système][1] se consacre au sujet). D'un autre côté, mon chiffre d'affaires est toujours nul, ça fait deux ans ce mois-ci. 
+La complétion du document me semble moins insurmontable qu'il y a deux mois, même si je vois bien qu'il y a des cases pour lesquelles je ne vais pas savoir quoi mettre. Quoi qu'il en soit, je pense qu'il ne faut plus trop que je tarde.
+
+Ma situation ne s'est pas améliorée depuis le premier envoi, puisque je n'ai plus de compte bancaire (voir le premier épisode [Journal système][1]). D'un autre côté, mon chiffre d'affaires est nul, et ça fait deux ans ce mois-ci que c'est comme ça. 
 
 [1]: http://flo.lo.gs/tag/S01xE01
 
-Le lendemain j'ai reçu un mail d'Eklablog concernant le "partenariat publicitaire". Il m'est demandé de renseigner mes coordonnées bancaires. Je ne sais pas si je peux mettre celles de ma femme en attendant. D'un autre côté il n'y a pas urgence, on ne reçoit un virement sonnant et trébuchant qu'à partir de 5 € de gains. L'objectif ne m'a pas semblé si éloigné que ça, jusqu'à ce que je sorte ma calculatrice Microsoft Windows.
+Le lendemain j'ai reçu un mail d'Eklablog concernant le "partenariat publicitaire". Il m'est demandé de renseigner mes coordonnées bancaires. Je ne sais pas si je peux mettre celles de ma femme en attendant. D'un autre côté, il n'y a pas urgence, on ne reçoit un virement sonnant et trébuchant qu'à partir de 5 € de gains. L'objectif ne m'a pas semblé si éloigné que ça, jusqu'à ce que je sorte ma calculatrice Microsoft Windows.
 
-Depuis que j'ai autorisé l'affichage de publicités sur mes blogs, j'ai virtuellement gagné 0.07 € en 5 mois, ce qu'il fait qu'il me faudrait plus de 71 fois plus de temps pour arriver à 5 €, ce qui fait 357 mois, soit presque 30 ans. Il faudrait que je publie en priorité sur la plateforme, et de façon plus soutenue. C'est ma seule perspective de recettes à ce jour. Plutôt ça que rien.
+Depuis que j'ai autorisé l'affichage de publicités sur mes blogs, j'ai en effet virtuellement gagné 0.07 € en 5 mois. Cela demanderait donc 71 fois plus de temps pour arriver à 5 €, c'est-à-dire 357 mois, soit presque 30 ans. Il faudrait que je publie en priorité sur la plateforme, et de façon plus soutenue. C'est ma seule perspective de recettes à ce jour. Plutôt ça que rien.
 
-En tout cas je sens confusément que pour résoudre mes problèmes d'argent, et dans la mesure où je viens d'être inscrit au fichier des incidents de remboursement des crédits aux particuliers (FICP) pour la deuxième fois en 20 ans, je dois sans plus tarder, et c'est la première chose à faire, examiner, passer au crible mon rapport à l'argent, avant d'envisager quoi que ce soit d'autre et d'imaginer un plan.
+Dans la mesure où je viens d'être inscrit pour la deuxième fois au fichier des incidents de remboursement des crédits aux particuliers (FICP), je sens que je dois sans plus tarder commencer par examiner mon rapport à l'argent, avant d'imaginer un plan pour faire des affaires.
 
-Je m'étais mise de côté la présentation TED [What explains the rise of humans][1], qui me semblait prometteuse. Je dois dire que j'ai été un petit peu déçu, commençant même par l'écarter dans la rédaction de ce post.
+Je m'étais mise de côté la présentation TED [What explains the rise of humans][1], qui me semblait prometteuse. Je dois dire que j'ai été un petit peu déçu, commençant même par l'écarter de la rédaction de ce post.
 
 [1]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans
 
-L'imagination, pour le meilleur et pour le pire, serait ce qui nous différencie de tous les autres animaux, et nous permet de les surclasser collectivement, faisant de nous les maître de la planète. Elle nous permet de coopérer à grande échelle, sans avoir besoin de nous connaître personnellement les uns les autres (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise).
+L'imagination, la flexibilité de nos organisations sociales et la coopération à grande échelle, sans avoir besoin de nous connaître les uns et les autres personnellement (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise), nous différencieraient de tous les autres animaux, l'espèce humaine finissant par devenir la maîtresse du monde.
 
-Depuis la préhistoire, nous nous sommes bâti une réalité fictionnelle au-dessus de la réalité objective, faite d'entités fictives comme les nations ou les grandes entreprises. L'argent, qui n'a aucune valeur en soi, est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, Dieu ne pouvant même pas en dire de même. Il occupe donc une place centrale dans l'irrésistible ascension de l'humanité.
+Depuis la préhistoire, explique l'historien Yuval Noah Harari, nous nous sommes bâtis une réalité fictionnelle au-dessus de la réalité objective, faite de nations ou de grandes entreprises. L'argent, qui n'a aucune valeur en soi, est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, et même Dieu ne peut pas en dire autant. Il occupe donc une place centrale dans l'irrésistible ascension de l'humanité, capable du meilleur comme du pire.
 
 ***
-
-et je crois savoir que réglementairement il n'est plus toléré d'utiliser son compte bancaire personnel pour son activité de travailleur indépendant, qu'il faut maintenant deux comptes séparés.
-
----
 
 Peut-être la partie de l'intervention la plus intéressante, mais qui je trouve décrédibilise un peu tout ce qui vient d'être dit tant les réponses sont faibles, se situe-t-elle à la marge, quand l'orateur répond à quelques questions du maître de cérémonie à l'issue de son monologue. Il est question, avec la montée en puissance de l'automatisation, du creusement des inégalités et la constituion d'une toute nouvelle classe de population inutile et pauvre.
 
