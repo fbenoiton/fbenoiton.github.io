@@ -10,17 +10,15 @@ Le lendemain j'ai reçu un mail d'Eklablog concernant le "partenariat publicitai
 
 Depuis que j'ai autorisé l'affichage de publicités sur mes blogs, j'ai virtuellement gagné 0.07 € en 5 mois, ce qu'il fait qu'il me faudrait plus de 71 fois plus de temps pour arriver à 5 €, ce qui fait 357 mois, soit presque 30 ans. Il faudrait que je publie en priorité sur la plateforme, et de façon plus soutenue. C'est ma seule perspective de recettes à ce jour. Plutôt ça que rien.
 
-  En tout cas je sens confusément que pour résoudre mes problèmes d'argent, et dans la mesure où je viens d'être inscrit au fichier des incidents de remboursement des crédits aux particuliers (FICP) pour la deuxième fois en 20 ans, je dois sans plus tarder, et c'est la première chose à faire, examiner, passer au crible mon rapport à l'argent, avant d'envisager quoi que ce soit d'autre et d'imaginer un plan.
+En tout cas je sens confusément que pour résoudre mes problèmes d'argent, et dans la mesure où je viens d'être inscrit au fichier des incidents de remboursement des crédits aux particuliers (FICP) pour la deuxième fois en 20 ans, je dois sans plus tarder, et c'est la première chose à faire, examiner, passer au crible mon rapport à l'argent, avant d'envisager quoi que ce soit d'autre et d'imaginer un plan.
 
-Je m'étais mise de côté la présentation TED [What explains the rise of humans][1], qui ne me semble plus aussi prometteuse maintenant que je l'ai regardée.
-
-L'imagination, pour le meilleur et pour le pire, serait ce qui nous différencie de tous les autres animaux, et de les surclasser collectivement et de finir par dominer la planète. C'est elle qui nous permet de coopérer à une très grande échelle, sans avoir besoin de nous connaître personnellement les uns les autres (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise).
-
-Depuis la préhistoire, nous nous sommes bâti une réalité fictionnelle au-dessus de la réalité objective, faite d'entités fictives comme les nations ou les grandes entreprises. Et 
-
-L'orateur place l'argent comme l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, Dieu ne pouvant dire la même chose de lui.
+Je m'étais mise de côté la présentation TED [What explains the rise of humans][1], qui me semblait prometteuse. Je dois dire que j'ai été un petit peu déçu, commençant même par l'écarter dans la rédaction de ce post.
 
 [1]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans
+
+L'imagination, pour le meilleur et pour le pire, serait ce qui nous différencie de tous les autres animaux, et nous permet de les surclasser collectivement, faisant de nous les maître de la planète. Elle nous permet de coopérer à grande échelle, sans avoir besoin de nous connaître personnellement les uns les autres (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise).
+
+Depuis la préhistoire, nous nous sommes bâti une réalité fictionnelle au-dessus de la réalité objective, faite d'entités fictives comme les nations ou les grandes entreprises. L'argent est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, Dieu ne pouvant dire la même chose de lui. Il occupe donc une place centrale dans cette irrésistible ascension de l'humanité.
 
 ***
 
