@@ -14,10 +14,10 @@ Depuis que j'ai autorisé l'affichage de publicités sur mes blogs, j'ai en effe
 
 Dans la mesure où je viens d'être inscrit pour la deuxième fois au fichier des incidents de remboursement des crédits aux particuliers (FICP), je sens que je dois sans plus tarder commencer par examiner mon rapport à l'argent, avant d'imaginer un plan pour faire des affaires.
 
-La présentation TED [What explains the rise of humans][1] ([Comment expliquer l'ascension de l'homme][2]) m'a semblé prometteuse quand je l'ai vue passer. J'ai été un petit peu déçu après l'avoir enfin regardée, commençant même par l'écarter de la rédaction de ce post.
+La présentation TED [What explains the rise of humans][2] ([Comment expliquer l'ascension de l'homme][3]) m'a semblé prometteuse quand je l'ai vue passer. J'ai été un petit peu déçu après l'avoir enfin regardée, commençant même par l'écarter de la rédaction de ce post.
 
-[1]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans
-[2]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans?language=fr
+[2]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans
+[3]: http://www.ted.com/talks/yuval_noah_harari_what_explains_the_rise_of_humans?language=fr
 
 L'imagination, la flexibilité de nos organisations sociales et la coopération à grande échelle, sans avoir besoin de nous connaître les uns et les autres personnellement (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise), nous différencieraient de tous les autres animaux, l'espèce humaine finissant ainsi par devenir la maîtresse du monde.
 
