@@ -21,7 +21,7 @@ La présentation TED [What explains the rise of humans][2] ([Comment expliquer l
 
 L'imagination, la flexibilité de nos organisations sociales et la coopération à grande échelle, sans avoir besoin de nous connaître les uns et les autres personnellement (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise), nous différencieraient de tous les autres animaux, l'espèce humaine finissant ainsi par devenir la maîtresse du monde.
 
-Depuis la préhistoire, explique l'historien Yuval Noah Harari, nous nous sommes bâtis une réalité fictionnelle au-dessus de la réalité objective, faite de nations ou de grandes entreprises. L'argent, qui n'a aucune valeur en soi, est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, et même Dieu ne peut pas en dire autant. L'argent occupe donc une place centrale dans l'irrésistible ascension de l'humanité, capable du meilleur comme du pire.
+Depuis la préhistoire, explique l'historien Yuval Noah Harari, nous nous sommes bâtis une réalité fictionnelle au-dessus de la réalité objective, faite de nations ou de grandes entreprises. L'argent, qui n'a aucune valeur en soi, est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, et même Dieu ne peut pas en dire autant. L'argent occupe donc une place de choix dans l'irrésistible ascension d'une humanité capable du meilleur comme du pire.
 
 ***
 
