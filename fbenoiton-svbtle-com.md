@@ -8,7 +8,7 @@ Depuis ma situation ne s'est pas améliorée, puisque je n'ai plus de compte ban
 
 Le lendemain j'ai reçu un mail d'Eklablog concernant le "partenariat publicitaire". Il m'est demandé de renseigner mes coordonnées bancaires. Je ne sais pas si je peux mettre celles de ma femme en attendant. D'un autre côté il n'y a pas urgence, on ne reçoit un virement sonnant et trébuchant qu'à partir de 5 € de gains. L'objectif ne m'a pas semblé si éloigné que ça, jusqu'à ce que je sorte ma calculatrice Microsoft Windows.
 
-Depuis que j'ai autorisé l'affiche de publicités sur mes blogs, j'ai virtuellement gagné 0.07 € en 5 mois, ce qu'il fait qu'il me faudrait plus de 71 fois plus de temps pour arriver à 5 €, ce qui fait 357 mois, soit presque 30 ans. Il faudrait que je publie en priorité sur la plateforme, et de façon plus soutenue. C'est ma seule perspective de recettes à ce jour. Plutôt ça que rien.
+Depuis que j'ai autorisé l'affichage de publicités sur mes blogs, j'ai virtuellement gagné 0.07 € en 5 mois, ce qu'il fait qu'il me faudrait plus de 71 fois plus de temps pour arriver à 5 €, ce qui fait 357 mois, soit presque 30 ans. Il faudrait que je publie en priorité sur la plateforme, et de façon plus soutenue. C'est ma seule perspective de recettes à ce jour. Plutôt ça que rien.
 
   En tout cas je sens confusément que pour résoudre mes problèmes d'argent, et dans la mesure où je viens d'être inscrit au fichier des incidents de remboursement des crédits aux particuliers (FICP) pour la deuxième fois en 20 ans, je dois sans plus tarder, et c'est la première chose à faire, examiner, passer au crible mon rapport à l'argent, avant d'envisager quoi que ce soit d'autre et d'imaginer un plan.
 
