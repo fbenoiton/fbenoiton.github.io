@@ -4,7 +4,7 @@ J'ai de nouveau reçu de l'administration fiscale le formulaire à remplir conce
 
 La complétion du document me semble moins insurmontable qu'il y a deux mois, même si je vois bien qu'il y a des cases pour lesquelles je ne vais pas savoir quoi mettre. Quoi qu'il en soit, je pense qu'il ne faut plus trop que je tarde.
 
-Ma situation ne s'est pas améliorée depuis le premier envoi, puisque je n'ai plus de compte bancaire (voir le premier épisode [Journal système][1]). D'un autre côté, mon chiffre d'affaires est nul, et ça fait deux ans ce mois-ci que c'est comme ça. 
+Ma situation ne s'est pas améliorée depuis le premier envoi, puisque je n'ai plus de compte bancaire (voir le premier épisode de [Journal système][1]). D'un autre côté, mon chiffre d'affaires est nul, et ça fait deux ans ce mois-ci que c'est comme ça. 
 
 [1]: http://flo.lo.gs/tag/S01xE01
 
