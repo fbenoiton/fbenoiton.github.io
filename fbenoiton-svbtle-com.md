@@ -1,4 +1,4 @@
-## Entreprise sans argent
+## La coopération et l'argent
 
 J'ai de nouveau reçu de l'administration fiscale le formulaire à retourner concernant les caractéristiques des locaux que j'utilise *"pour les besoins de mon activité professionnelle"*, c'est-à-dire mon nouveau domicile en ce qui me concerne. Le document me semble moins écrasant à remplir qu'il y a deux mois. Je pense qu'il ne faut plus trop que je tarde.
 
@@ -18,7 +18,7 @@ Je m'étais mise de côté la présentation TED [What explains the rise of human
 
 L'imagination, pour le meilleur et pour le pire, serait ce qui nous différencie de tous les autres animaux, et nous permet de les surclasser collectivement, faisant de nous les maître de la planète. Elle nous permet de coopérer à grande échelle, sans avoir besoin de nous connaître personnellement les uns les autres (je ne connais pas toutes les personnes qui ont permis que je tape ces mots sur l'ordinateur que j'utilise).
 
-Depuis la préhistoire, nous nous sommes bâti une réalité fictionnelle au-dessus de la réalité objective, faite d'entités fictives comme les nations ou les grandes entreprises. L'argent est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, Dieu ne pouvant dire la même chose de lui. Il occupe donc une place centrale dans cette irrésistible ascension de l'humanité.
+Depuis la préhistoire, nous nous sommes bâti une réalité fictionnelle au-dessus de la réalité objective, faite d'entités fictives comme les nations ou les grandes entreprises. L'argent, qui n'a aucune valeur en soi, est l'oeuvre de fiction la plus répandue et la plus aboutie. Tout le monde y croit, Dieu ne pouvant même pas en dire de même. Il occupe donc une place centrale dans l'irrésistible ascension de l'humanité.
 
 ***
 
