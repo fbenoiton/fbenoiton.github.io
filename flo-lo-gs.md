@@ -6,7 +6,9 @@ Mon interlocutrice est restée évasive concernant ma situation à la Banque pos
 
 L'idée s'est enfin fait jour dans mon esprit que je n'avais plus de compte en banque, même si je n'en étais pas encore sûr et certain. Je pense qu'avant que l'étude prenne le relais, la Banque postale avait essayé de me contacter par téléphone, sans jamais laisser de messages, et jamais par mail (pas assez sûr ?), et je ne risquais pas de prendre connaissance de peut-être ceux de la messagerie interne puisque je n'avais plus d'espace client en ligne avec la fermeture du compte.
 
-Le problème était que depuis mon déménagement je n'avais jamais fait le changement d'adresse et ma femme et moi n'avions pas mis en place au bureau de poste un suivi du courrier à notre nouvelle adresse. C'est aussi pourquoi je n'avais pas reçu un certain courrier de l'étude, envoyé au début du mois, précisant ma dette : 71,13 €. Je ne peux pas vous dire à quoi ça correspond, et je n'allais pas davantage avoir le détail de la facture par la suite, mais en tout cas cela restait raisonnable, ma femme m'assurant que nous avions les moyens de régler la totalité de la somme d'un coup.
+Le problème était que depuis mon déménagement je n'avais jamais fait le changement d'adresse et ma femme et moi n'avions pas mis en place au bureau de poste un suivi du courrier à notre nouvelle adresse. En fait c'est la première chose que j'ai regardée quand j'ai ouvert mon dernier relevé électronique, qui était toujours adressé au Mans.
+
+C'est aussi pourquoi je n'avais pas reçu un certain courrier de l'étude, envoyé au début du mois, précisant ma dette : 71,13 €. Je ne peux pas vous dire à quoi ça correspond, et je n'allais pas davantage avoir le détail de la facture par la suite, mais en tout cas cela restait raisonnable, ma femme m'assurant que nous avions les moyens de régler la totalité de la somme d'un coup.
 
 J'ai donc convenu avec mon interlocutrice, à la voix assez jeune, qu'elle me renvoie ce courrier. Je lui ai donné mon adresse sans difficulté, ce qui l'a peut-être un peu surprise. Les gens ont tendance à ne pas s'acquitter de ce genre de dette et seraient les premiers à profiter d'un changement d'adresse ? Moi ce qui me surprend c'est que la mienne n'est pas bien longue à trouver sur le Web (mais c'est vrai qu'il n'y a pas 36 000 Florian Benoiton en France).
 
@@ -18,14 +20,13 @@ Il n'y avait encore rien au courrier le mercredi 12 août 2015. Ce jour-là je n
 
 ***
 
-● Question en suspens : La Poste Telecom. D'ailleurs quelle adresse ont-ils ? En tout cas Flo m'a dit que je n'avais pas besoin de garder la ligne. ● En fait étude à Coutances (il faudrait réécouter le message), plus grande ville la plus proche d'Agon-Coutainville... ● (Et le numéro de carte CB donné à AWS...)
-
-Mercredi 12 : Réception SMS huissiers SESARL pour la Banque postale avec un numéro de dossier. Alors que quelques minutes plutôt j'ai donné pour la sécurité mon portable, sur la proposition du site web, en laissant les notifications SMS cochées pour voir [Twitter @fbenoiton]... Moi qui pensais naïvement qu'ils voulaient qu'on se rabiboche avec la Banque postale. / Publicité sur les banques en ligne dans mon fil Facebook... (Capture d'écran.) / Rien encore au courrier mercredi 12 août 2015.
+Mercredi 12 : quand même Réception SMS huissiers SESARL pour la Banque postale avec un numéro de dossier. Alors que quelques minutes plutôt j'ai donné pour la sécurité mon portable, sur la proposition du site web, en laissant les notifications SMS cochées pour voir [Twitter @fbenoiton]... Moi qui pensais naïvement qu'ils voulaient qu'on se rabiboche avec la Banque postale.
 
 Jeudi 13 : Une invitation au voyage dans mon fil Facebook (copie d'écran).
 
-L'adresse officielle est bien encore celle du Mans. Je n'avais jamais fait le changement d'adresse, et en déménagement à Mamers en novembre dernier, ma femme et moi n'avions mis en place aucune suivi du courrier.
 (solde resté négatif)En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
 
 pas bien perçu riche et célèbre
 veux pas d'une banque qui ne croirait pas en moi
+
+● Question en suspens : La Poste Telecom. D'ailleurs quelle adresse ont-ils ? En tout cas Flo m'a dit que je n'avais pas besoin de garder la ligne. ● En fait étude à Coutances (il faudrait réécouter le message), plus grande ville la plus proche d'Agon-Coutainville... ● (Et le numéro de carte CB donné à AWS...)
