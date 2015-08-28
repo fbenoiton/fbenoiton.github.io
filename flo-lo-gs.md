@@ -16,7 +16,11 @@ Je ne vais pas aller jusqu'à prétendre que c'est la raison pour laquelle je su
 
 Alors que je m'inquiétais de quand le courrier allait être réexpédié et quand j'allais le recevoir, j'ai senti une pointe de toute-puissance se manifester chez mon interlocutrice quand elle a claironné que le courrier était en quelque sorte déjà parti, puisque qu'elle venait de lancer l'opération pendant notre conversation depuis son ordinateur, n'ayant qu'à appuyer sur une touche.
 
-Il n'y avait encore rien au courrier le mercredi 12 août 2015. Ce jour-là je n'ai juste vu passer dans mon fil d'actualité Facebook une pub vantant les mérites des banques en ligne (copie d'écran).
+Il n'y avait encore rien au courrier le mercredi 12 août 2015. Ce jour-là je n'ai juste vu passer dans mon fil d'actualité Facebook une pub vantant les mérites des banques en ligne (copie d'écran), clamant :
+
+> **C'est le moment d'ouvrir un compte !**
+
+Capture d'écran 2015-08-12 13.12.44
 
 ***
 
