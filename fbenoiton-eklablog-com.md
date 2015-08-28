@@ -1,10 +1,10 @@
 ## L'édition restait à parfaire
 
-J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais traiter du travail d'édition isolément, même s'il n'était pas uniquement question des contenus textuels et qu'il s'inscrivait dans une perspective plutôt marketing. Bien plus tard je me rendrais compte qu'il ne correspondait pas tout à fait au découpage des phases d'écriture et de révision que j'avais en tête. 
+J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais traiter du travail d'édition isolément, même s'il n'était pas uniquement question des contenus textuels et qu'il s'inscrivait dans une perspective plutôt marketing et dans le contexte de l'entreprise en prenant en compte différents types d'intervenants.
 
 [1]: http://www.smashingmagazine.com/2014/01/14/editing-tips-for-business-web-content/
 
-Le processus d'édition présenté n'en restait pas moins la voie à suivre pour arriver, quasi scientifiquement, à produire un contenu de qualité, c'est-à-dire ce qui allait avoir le plus de chance de toucher sa cible, comme déclencher un acte d'achat après la présentation d'un produit.
+Le processus de révision présenté n'en restait pas moins la voie à suivre pour arriver, quasi scientifiquement, à produire un contenu de qualité, c'est-à-dire ce qui allait avoir le plus de chance de toucher sa cible, comme déclencher un acte d'achat après la présentation d'un produit. J'espérais surtout y dénicher des gains de productivité.
 
 Brad Shorr le subdivise en cinq étapes, non sans reconnaître que c'est un découpage parmi d'autres : 
 
@@ -19,4 +19,8 @@ D'après tout ce que j'ai pu lire depuis, on peut simplifier pour avoir une visi
 La signification des syntagmes tient alors une place encore prépondérante, mais de façon déjà plus formelle. Finalement on se concentre sur ce dernier aspect, pour lequel il est conseillé pour être efficace d'oublier le sens du texte pour faire à la fin du lettre à lettre, du caractère à caractère (s'il en manque, s'il y en a en trop). Il est connu que le cerveau a tendance à corriger ce qu'il lit automatiquement, en plus ou en moins. Il faut tenter d'écarter le sens pour ne pas qu'il nous distraie pendant la correction.
 
 <https://getpocket.com/a/read/522968950>
+
+***
+
+Bien plus tard je me rendrais compte qu'il ne correspondait pas tout à fait au découpage des phases d'écriture et de révision que j'avais en tête.
 
