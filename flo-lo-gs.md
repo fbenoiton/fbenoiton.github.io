@@ -22,8 +22,6 @@ Il n'y avait quand même encore rien à la boîte le mercredi 12 août 2015. Ce 
 
 > **C'est le moment d'ouvrir un compte !**
 
-Je crois que j'ai compris.
-
 Capture d'écran 2015-08-12 13.12.44
 
 ***
