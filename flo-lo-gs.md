@@ -2,7 +2,7 @@
 
 Lundi 10 août 2015, j'ai fini par composer le numéro de l'étude d'huissier à 16 h 50. Je suis tombé sur un disque disant que toutes les lignes téléphoniques de mon correspondant étaient occupées. Idem à 17 heures. Mon appel a abouti au troisième essai, à 17 h 30.
 
-Mon interlocutrice est restée évasive concernant ma situation à la Banque postale. Elle est restée concentrée sur la dette qu'elle la charge de recouvrir, et dont j'ai découvert le montant à cette occasion. Il faut dire que j'ai été soulagé. J'en étais resté à une dette de 44.73 € d'après le dernier relevé de compte, alors j'étais inquiet de savoir dans quelle mesure la situation avait empiré en un mois (elle s'était creusée d'un peu moins du simple au double, en fait).
+Mon interlocutrice est restée évasive quant à ma situation à la Banque postale. Elle est restée concentrée sur la dette à recouvrir, et dont j'ai découvert le montant à cette occasion. Il faut dire que j'ai été soulagé. J'en étais resté à une dette de 44.73 € d'après le dernier relevé de compte, alors j'étais inquiet de savoir dans quelle mesure la situation avait empiré en un mois (elle s'était creusée d'un peu moins du simple au double, en fait).
 
 C'est à ce moment-là que l'idée s'est enfin fait jour dans mon esprit que je n'avais plus de compte en banque, même si je doutais encore. Je pense qu'avant que l'étude ne devienne mon unique interlocuteur, la Banque postale avait essayé de me contacter par téléphone, mais sans jamais laisser de messages. Je ne risquais pas de prendre connaissance de ceux qui auraient pu passer par la messagerie interne, maintenant que je n'avais plus d'espace client en ligne avec la fermeture du compte.
 
@@ -22,7 +22,7 @@ Il n'y avait quand même encore rien à la boîte le mercredi 12 août 2015. Ce 
 
 > **C'est le moment d'ouvrir un compte !**
 
-C'est bon, j'ai compris !
+Je crois que j'ai compris.
 
 Capture d'écran 2015-08-12 13.12.44
 
