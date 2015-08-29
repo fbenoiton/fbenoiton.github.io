@@ -12,9 +12,9 @@ C'est ce qui faisait aussi que je n'avais pas reçu un certain courrier de l'ét
 
 J'ai donc convenu avec la personne de l'étude d'huissier au bout du fil qu'elle me renvoie ce courrier. Je lui ai donné ma nouvelle adresse sans difficulté, ce qui l'a peut-être un peu étonnée. Etait-ce courant de profiter d'un changement d'adresse pour ne pas rembourser ce genre genre de dettes ? En tout cas la mienne n'est pas bien longue à trouver sur le Web, mais c'est vrai qu'il n'y a pas 36 000 Florian Benoiton en France.
 
-Je ne vais pas aller jusqu'à prétendre que c'est la raison pour laquelle je suis pauvre, mais je pense être quelqu'un d'honnête et qui n'est pas du genre à laisser des ardoises derrière lui. À l'issue de mon dossier de surendettement, au début des années 2000, j'ai remboursé tous mes créanciers, même Bouygues Telecom. J'avais mon mobile chez eux, et je n'ai pas oublié la façon dont ils m'ont coupé sèchement ma ligne.
+Je ne vais pas aller jusqu'à prétendre que c'est la raison pour laquelle je suis pauvre, mais je pense être quelqu'un d'honnête et qui n'est pas du genre à laisser des ardoises derrière lui. À l'issue de mon dossier de surendettement, au début des années 2000, j'ai remboursé tous mes créanciers, même Bouygues Telecom. J'avais mon mobile chez eux, et je n'ai pas oublié la façon dont ils m'ont coupé sèchement la ligne.
 
-Egale à elle-même, la société avait fait intervenir un cabinet de recouvrement dès la fin du moratoire. Je ne me suis rendu compte que plus tard que, d'après le code de la consommation, cette dette dérisoire (l'équivalent d'un mois de forfait tout à fait raisonnable) était prescrite.
+Egale à elle-même, la société avait fait intervenir un cabinet de recouvrement dès la fin du moratoire. Je ne me suis rendu compte que plus tard que, d'après le code de la consommation, cette dette dérisoire (l'équivalent d'un mois de forfait tout à fait raisonnable) était prescrite. Mais là encore ça n'avait rien de personnel.
 
 Alors que je m'inquiétais de la suite des opérations et de la réception du courrier papier réexpédié par voie postale, j'ai senti une pointe de toute-puissance se manifester chez mon interlocutrice quand elle a claironné que le courrier était déjà parti, son envoi n'étant qu'à un clic de souris ou une touche de clavier d'ordinateur.
 
