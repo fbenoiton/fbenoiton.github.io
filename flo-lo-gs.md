@@ -18,7 +18,7 @@ Je ne vais pas aller jusqu'à prétendre que c'est la raison pour laquelle je su
 
 Alors que je m'inquiétais de la suite des opérations et de la réception du courrier papier réexpédié par voie postale, j'ai senti une pointe de satisfaction chez mon interlocutrice quand elle a claironné que le courrier était déjà parti. J'ai eu cette image où, dans une sorte d'ivresse du pouvoir, je la revoyais rééditer et renvoyer la missive d'un clic de souris ou d'une touche de clavier d'ordinateur.
 
-Il n'y avait quand même encore rien à la boîte le mercredi 12 août 2015. Ce jour-là, j'ai vu passer dans mon fil d'actualité Facebook une pub vantant les mérites des banques en ligne (copie d'écran), et qui disait :
+Il n'y avait quand même encore rien à la boîte le mercredi 12 août 2015. Ce jour-là, j'ai vu passer dans mon fil d'actualité Facebook une pub vantant les mérites des banques en ligne (copie d'écran). Elle proclamait :
 
 > **C'est le moment d'ouvrir un compte !**
 
