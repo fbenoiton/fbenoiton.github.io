@@ -16,13 +16,13 @@ Je ne vais pas aller jusqu'à prétendre que c'est la raison pour laquelle je su
 
 Egale à elle-même, la société avait fait intervenir un cabinet de recouvrement dès la fin du moratoire. Je ne me suis rendu compte que plus tard que, d'après le code de la consommation, cette dette dérisoire (l'équivalent d'un mois de forfait tout à fait raisonnable) était prescrite.
 
-Alors que je m'inquiétais de la suite des opérations et de la réception du courrier réexpédié, j'ai senti une pointe de toute-puissance se manifester chez mon interlocutrice quand elle a claironné que le courrier était déjà parti, le lancement de l'opération n'étant qu'à un clic de souris ou une touche de clavier d'oridinateur.
+Alors que je m'inquiétais de la suite des opérations et de la réception du courrier papier réexpédié par voie postale, j'ai senti une pointe de toute-puissance se manifester chez mon interlocutrice quand elle a claironné que le courrier était déjà parti, son envoi n'étant qu'à un clic de souris ou une touche de clavier d'ordinateur.
 
-Il n'y avait encore rien à la boîte le mercredi 12 août 2015. Ce jour-là, je n'ai juste vu passer dans mon fil d'actualité Facebook une pub vantant les mérites des banques en ligne (copie d'écran) :
+Il n'y avait quand même encore rien à la boîte le mercredi 12 août 2015. Ce jour-là, je n'ai vu passer dans mon fil d'actualité Facebook qu'une pub vantant les mérites des banques en ligne (copie d'écran) :
 
 > **C'est le moment d'ouvrir un compte !**
 
-Si je n'avais pas enfin compris...
+C'est bon, j'ai compris !
 
 Capture d'écran 2015-08-12 13.12.44
 
