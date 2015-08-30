@@ -4,11 +4,11 @@ J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, d
 
 [1]: http://www.smashingmagazine.com/2014/01/14/editing-tips-for-business-web-content/
 
-La méthode de révision présentée n'en fournissait pas moins de précieuses indications pour produire un contenu de qualité, c'est-à-dire qui allait toucher sa cible et typiquement déclencher l'acte d'achat après la présentation d'un quelconque produit ou service. Pour ma part, je comptais, un jour, en tirer de nouveaux gains de productivité.
+La méthode de révision présentée n'en fournissait pas moins de précieuses indications conduisant à un contenu de qualité, c'est-à-dire qui allait toucher sa cible et typiquement déclencher l'acte d'achat, après la présentation de tel ou tel produit ou service. Pour ma part, je comptais, un jour, en tirer de nouveaux gains de productivité.
 
-Brad Shorr distingue cinq phases, tout en reconnaissant qu'il ne s'agit pas là du seul découpage possible :
+Brad Shorr distingue cinq phases spécifiques :
 
-- une édition substantielle, de fond, qui à trait au sens et à l'articulation entre eux des arguments de la production écrite. Il est question ici de savoir de quoi l'on parle et d'exposer son sujet clairement et efficacement. Sans failles, la narration doit être structurée, logique, cohérente et précise, non oiseuse, tout en restant bien au service des objectifs poursuivis. C'est ici que l'on peut donner encore à la communication du coffre, lui insuffler de la personnalité ;
+- une édition qui s'attaque au fond. Il s'agit de passer au crible les arguments présentés et la cohérence de leur présentation. Le but est communiquer clairement et efficacement ses idées, de façon adaptée aux destinataires du message, dans le sens des objectifs poursuivis et le respect des marques de fabrique. C'est à ce niveau que l'on cherche à donner du mordant à l'exposé ;
 - une édition qui aurait trait au style, à la concision, au choix des mots, à l'absence de jargon, aux tournures et erreurs d'expression, de langage, à ce qui pourrait altérer le sens ou faire contresens ; assurer la cohésion de l'ensemble, faire en sorte qu'il n'y ait bien qu'une seule voix qui parle. La présentation du contenu doit le rendre digeste, la lecture facile, les titres et sous-titres bien choisis ;
 - viennent ensuite les corrections liées à la véracité de ce qui est affirmé et des données, le *fact checking* en anglais, la vérification par les faits (il y en a un autre qui peut intervenir bien en amont, dans la phase de recherche), et ce que j'ai lu s'appeler le "contrôle qualité" en français dans le domaine du journalisme d'investigation ;
 - l'édition liée à l'optimisation pour les moteurs de recherche web. Personnellement ce n'est pas pour l'instant ma tasse de thé (le contenu qui n'a pas encore été créé ne risque pas d'être trouvé et consommé...) ;
