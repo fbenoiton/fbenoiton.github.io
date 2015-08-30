@@ -17,6 +17,16 @@ Juste avant le retour de vacances de son fils, nous avons posé les premières p
 
 J'ai milité en faveur de trois mises en garde à chaque infraction caractérisée avant le déclenchement d'une sanction, ce serait finalement au bout de la quatrième que nous sévirions ma femme et moi. Dans l'esprit, il s'agit vraiment de faire exister notre couple sur le plan de l'autorité parentale, ce qui pourrait avoir des effets positifs sur le plan conjugual. Ce système a vocation de s'appliquer aux deux enfants, celui de ma femme et notre bébé, sans discrimination. Il s'agit de faire régner un climat de justice.
 
+L'enfant est rentré le jeudi soir 27 août 2015. Comme de plus il était censé avoir déjà dîné, les circonstances se prêtaient à ce que le lavage des dents du soir passe à l'as. Mais j'y ai pensé, avec la pleine motivation de ma femme, bien décidée, qui l'a imposé à l'enfant (c'était l'occasion de lui communiquer la règle désormais en vigueur à ce sujet).
+
+Elle l'a bientôt repris parce qu'il s'est mis à ne plus se les laver au-dessus du lavabo. Deuxième provocation, je me suis aperçu qu'il n'avait pas éteint derrière lui la lumière de la salle de bains derrière lui. Ce sont deux points qu'il sait sensibles, pour avoir été corrigé un nombre innombrable de fois là-dessus. Accumuler les désobéissances tout en faisant mine de coopérer est une marque de fabrique chez lui, et ça ne manque jamais de faire ressentir à l'adulte une vive irritation de se voir ainsi moqué.
+
+Cela nous faisait déjà deux règles à ajouter ou préciser. Heureusement, alors que nous allions tomber dans le panneau ... mais nous avons finalement décidé de ne pas le faire tout de suite, de déjà appliquer celles que nous avons formalisées, ne pas tomber dans le piège. La règle concernant le coucher a été donnée.
+
+L'enfant avait toujours fini par l'emporter, à faire plier les adultes par le passé.
+
+Cette fois-ci la partie promet d'être intéressante.
+
 ***
 
 Ma femme est tellement empêtrée dans son enfance ... No way : note cahier rouge : sous l'emprise de son fils.
