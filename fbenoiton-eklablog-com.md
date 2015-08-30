@@ -1,12 +1,12 @@
 ## L'édition restait à parfaire
 
-J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais traiter du travail d'édition isolément, même s'il n'était pas uniquement question des contenus textuels et qu'il s'inscrivait dans une perspective plutôt marketing et dans le contexte de l'entreprise en prenant en compte différents types d'intervenants.
+J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais traiter du travail d'édition spécifiquement, même s'il n'entent pas s'appliquer qu'aux contenus textuels. Il s'inscrit aussi dans le contexte de l'entreprise, et des efforts de cette dernière dans le domaine marketing, qui peuvent mobiliser différents types d'intervenants.
 
 [1]: http://www.smashingmagazine.com/2014/01/14/editing-tips-for-business-web-content/
 
-Le processus de révision présenté n'en restait pas moins la voie à suivre pour arriver, quasi scientifiquement, à produire un contenu de qualité, c'est-à-dire ce qui allait avoir le plus de chance de toucher sa cible, comme déclencher un acte d'achat après la présentation d'un produit. J'espérais surtout y dénicher des gains de productivité.
+La méthode de révision présentée n'en fournissait pas moins de précieuses indications pour produire un contenu de qualité, c'est-à-dire qui allait toucher sa cible et typiquement déclencher l'acte d'achat après la présentation d'un quelconque produit ou service. Pour ma part, je comptais, un jour, en tirer de nouveaux gains de productivité.
 
-Brad Shorr le subdivise en cinq étapes, non sans reconnaître que c'est un découpage parmi d'autres : 
+Brad Shorr distingue cinq phases, tout en reconnaissant qu'il ne s'agit pas là du seul découpage possible :
 
 - une édition substantielle, de fond, qui à trait au sens et à l'articulation entre eux des arguments de la production écrite. Il est question ici de savoir de quoi l'on parle et d'exposer son sujet clairement et efficacement. Sans failles, la narration doit être structurée, logique, cohérente et précise, non oiseuse, tout en restant bien au service des objectifs poursuivis. C'est ici que l'on peut donner encore à la communication du coffre, lui insuffler de la personnalité ;
 - une édition qui aurait trait au style, à la concision, au choix des mots, à l'absence de jargon, aux tournures et erreurs d'expression, de langage, à ce qui pourrait altérer le sens ou faire contresens ; assurer la cohésion de l'ensemble, faire en sorte qu'il n'y ait bien qu'une seule voix qui parle. La présentation du contenu doit le rendre digeste, la lecture facile, les titres et sous-titres bien choisis ;
@@ -23,4 +23,3 @@ La signification des syntagmes tient alors une place encore prépondérante, mai
 ***
 
 Bien plus tard je me rendrais compte qu'il ne correspondait pas tout à fait au découpage des phases d'écriture et de révision que j'avais en tête.
-
