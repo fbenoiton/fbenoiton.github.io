@@ -4,7 +4,7 @@ J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, d
 
 [1]: http://www.smashingmagazine.com/2014/01/14/editing-tips-for-business-web-content/
 
-La méthode de révision présentée n'en fournissait pas moins de précieuses indications permettant de se retrouver mécaniquement avec des contenus de qualité, c'est-à-dire concevoir un message qui fait mouche (typiquement déclencher l'acte d'achat). Pour ma part, je comptais me garder ça sous le coude pour, un jour, en tirer des gains de productivité supplémentaires dans mes écrits.
+La méthode de révision présentée n'en fournissait pas moins de précieuses indications permettant de se retrouver mécaniquement avec des contenus de qualité, c'est-à-dire concevoir un message qui fait mouche (typiquement déclencher l'acte d'achat). Pour ma part, je comptais me garder ça sous le coude pour, un jour, en tirer des gains de productivité supplémentaires dans mes écrits unipersonnels.
 
 Brad Shorr distingue cinq tâches d'édition spécifiques :
 
