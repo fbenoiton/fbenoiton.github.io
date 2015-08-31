@@ -1,10 +1,10 @@
 ## L'édition restait à parfaire
 
-J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais traiter du travail d'édition spécifiquement, même s'il n'entent pas s'appliquer qu'aux contenus textuels. Il s'inscrit aussi dans le contexte de l'entreprise, et des efforts de cette dernière dans le domaine marketing, qui peuvent mobiliser différents types d'intervenants.
+J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais isoler le travail d'édition, ne se limitant d'ailleurs pas aux contenus textuels. L'article s'inscrivait aussi dans le contexte de l'entreprise et ses effort dans le domaine du marketing, mobilisant différents types d'intervenants.
 
 [1]: http://www.smashingmagazine.com/2014/01/14/editing-tips-for-business-web-content/
 
-La méthode de révision présentée n'en fournissait pas moins de précieuses indications conduisant mathématiquement à un contenu de qualité, c'est-à-dire qui touche sa cible et typiquement déclenche l'acte d'achat. Pour ma part, je comptais me garde ça sous le coude pour, un jour, en tirer des  gains de productivité supplémentaires.
+La méthode de révision présentée n'en fournissait pas moins de précieuses indications conduisant mécaniquement à un contenu de qualité. C'est-à-dire concevoir un message qui fait mouche (typiquement déclencher l'acte d'achat). Pour ma part, je comptais me garde ça sous le coude pour, un jour, en tirer des  gains de productivité supplémentaires.
 
 Brad Shorr distingue cinq tâches spécifiques :
 
