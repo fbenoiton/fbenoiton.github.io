@@ -1,18 +1,18 @@
 ## L'édition restait à parfaire
 
-J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais isoler le travail d'édition, ne se limitant d'ailleurs pas aux contenus textuels. L'article s'inscrivait aussi dans le contexte de l'entreprise et ses effort dans le domaine du marketing, mobilisant différents types d'intervenants.
+J'ai dû découvrir [Editing Tips For Business Web Content][1] à sa parution, début 2014. C'était le premier article que je voyais isoler le travail d'édition, même s'il ne se limitait pas en théorie aux contenus purement textuels et qu'il s'inscrivait dans un contexte marketing, où différents types d'intervenants pouvaient être mobilisés.
 
 [1]: http://www.smashingmagazine.com/2014/01/14/editing-tips-for-business-web-content/
 
-La méthode de révision présentée n'en fournissait pas moins de précieuses indications conduisant mécaniquement à un contenu de qualité. C'est-à-dire concevoir un message qui fait mouche (typiquement déclencher l'acte d'achat). Pour ma part, je comptais me garde ça sous le coude pour, un jour, en tirer des  gains de productivité supplémentaires.
+La méthode de révision présentée n'en fournissait pas moins de précieuses indications permettant de se retrouver mécaniquement avec des contenus de qualité, c'est-à-dire concevoir un message qui fait mouche (typiquement déclencher l'acte d'achat). Pour ma part, je comptais me garder ça sous le coude pour, un jour, en tirer des gains de productivité supplémentaires dans mes écrits.
 
-Brad Shorr distingue cinq tâches spécifiques :
+Brad Shorr distingue cinq tâches d'édition spécifiques :
 
-- une édition qui s'attaque au fond. Il s'agit de passer au crible les arguments présentés et la cohérence de leur présentation. Le but est de faire passer clairement et efficacement un message adapté aux destinataires, dans le sens des objectifs poursuivis par l'émetteur et le respect de ses marques de fabrique. C'est à ce niveau que l'on cherche à donner du mordant à l'exposé, qui est encore considéré dans sa globalité ;
-- viendrait une édition à l'échelle de la phrase et relative au style, à la grammaire, à la ponctuation. Il est question de concision, de choix des mots. Il faut veiller à l'absence de jargon et autres références obscures, corriger les erreurs d'expression et les fautes de goût, traquer ce qui altère le sens ou fait contresens, tout en gardant un oeil sur la consistance de l'ensemble. La présentation doit rendre le contenu digeste et sa lecture facile, les titres et sous-titres devant être bien choisis et positionnés en conséquence, la taille des paragraphes adaptée ;
+- une révision qui s'attaque au fond. Il s'agit de passer au crible les arguments présentés et la cohérence de l'exposé. Le but est de faire passer clairement et efficacement un message adapté aux destinataires, dans le sens des objectifs poursuivis par l'émetteur et le respect de ses marques de fabrique. C'est à ce niveau que l'on cherche à donner du mordant à la présentation, encore considérée dans sa globalité ;
+- viendrait une édition à l'échelle de la phrase et relative au style, à la grammaire, à la ponctuation. Il est question de concision, de choix des mots. Il faut veiller à l'absence de jargon et autres références obscures. Corriger les erreurs d'expression et les fautes de goût, traquer ce qui altère le sens ou fait contresens, tout en gardant un oeil sur la consistance de l'ensemble. La présentation doit rendre le contenu digeste et sa lecture facile, les titres et sous-titres bien choisis et positionnés en conséquence, la taille des paragraphes adaptée ;
 - il faut maintenant vérifier les informations données, c'est le *fact checking*. J'ai aussi vu le terme de "contrôle qualité", au cours d'une lecture sur le journalisme d'investigation (même si vous avez les bonnes données au départ, l'erreur est humaine) ;
-- il y a ensuite l'optimisation du contenu pour les moteurs de recherche web ;
-- et il s'agit finalement d'être pointilleux, afin de ne pas laisser de coquilles dans le texte, de vérifier son formatage (taille, police de caractères...) et veiller au respect des règles orthotypographiques, comme le nombre d'espaces standard autour des signes de ponctuation.
+- il y a ensuite l'optimisation du contenu pour qu'il figure à la meilleure place possible dans les résultats des moteurs de recherche web ;
+- et il s'agit finalement d'être pointilleux, afin de ne pas laisser de coquilles dans le texte, de vérifier le formatage (taille, police de caractères...) et veiller au respect des règles orthotypographiques (comme le nombre d'espaces standard autour des signes de ponctuation).
 
 À la fin le sens des phrases et des mots devient secondaire, et même une source de distraction. On sait par exemple que le cerveau a tendance à corriger ce qu'il lit automatiquement, les doublons comme les mots ou caractères manquants.
 
