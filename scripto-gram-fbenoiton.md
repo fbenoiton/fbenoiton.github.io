@@ -1,12 +1,14 @@
 ## La rentrée de tous les dangers
 
-Si je me base sur ce que j'ai pu vivre il y a un an et le client familial explosif et délétère, je ne pouvais qu'appréhender cette période de rentrée des classes. Cependant l'espoir vient de renaître. Je me suis même dit à un moment que je ne ressentirais plus le besoin de ce blog en même temps que sa fin annoncée avec la fin programmée de la plateforme Scriptogram, dans moins de deux semaines maintenant, que les choses pourraient bien être se trouver remises sur les rails, avant de tempérer mon imagination et me faire revenir sur terre. La partie allait être loin d'être simple !
+L'espoir vient de renaître. Je me suis même dit, à un moment, que d'ici la fin programmée de la plateforme Scriptogram, dans moins de deux semaines maintenant, la vie de mon foyer recomposé serait en bonne voie de normalisation et que je ne ressentirais plus le besoin de tenir un blog tel que celui-ci. J'ai vite tempéré mon imagination.
 
-Au printemps dernier j'avais finalement décidé de laisser tomber toute velléité éducative, dans la mesure où ma femme, la mère de l'enfant, ne serait jamais vraiment décidée à aller jusqu'au bout de l'exerice d'une autorité parentale adulte sur l'enfant. Quand elle ne condamnait pas ouvertement mes efforts, je me retrouvais toujours seul à tenter de pose quelques limites à la toute-puissance de l'enfant, pour finir par être disqualifié d'une façon ou d'une autre. On ne m'y reprendrait plus, c'était une cause perdue.
+Au printemps dernier, j'avais décidé de laisser tomber toute velléité éducative à l'égard du fils de ma femme, qui ne serait jamais encline à exercer résolument sont autorité parentale sur l'enfant tyrannique. Quand elle ne condamnait pas mes efforts, je me retrouvais toujours seul face à la toute-puissance de l'enfant à tenter de poser quelques limites, finalement disqualifié ou désavoué d'une façon ou d'une autre.
 
-Or ces deux derniers mois, sous l'impulsion d'un intervenant tiers, en fait notre thérapeute familial, désormais au chevet de notre couple, car c'était bien ce dernier qu'il s'agissait de sauver cet été, au bord du gouffre comme l'année passé à la même époque. Lors de la dernière séance, ma femme et moi avons convenu de mettre en place des réunions dites "éducatives" sur un rythme hebdomadaire, pour commencer à mettre en place système de règles de vie simples pour la maison, qui concernerait nos deux enfants, et un protocole de sanctions si elle étaient enfreintes de façon répétitive, ce qui ne laissait alors plus aucun doute sur le caractère provocateur de l'enfant de 12 ans.
+On ne m'y reprendrait plus, c'était une cause perdue.
 
-Juste avant le retour de vacances de son fils, nous avons posé les premières pierres lors de la première réunion, mardi 25 août 2015 (il va sans dire qu'aucune d'elles n'est acquise, même après des années de lutte acharnée pour certaines) :
+Or cet été, sous l'impulsion de notre thérapeute familial, le volet éducatif est revenu au premier plan. Comme l'an passé à la même époque, mon couple s'était de nouveau retrouvé au bord du gouffre. À l'issue de la dernière séance, ma femme et moi avons convenu de nous réunir une fois par semaine pour mettre en place un système d'une poignée de règles de vie simples pour la maison et en assurer le suivi. Si celles-ci étaient enfreintes de façon répétitive il y aurait sanction, la caractère provocateur des infractions devenant évident.
+
+Juste avant le retour de vacances du garçon, nous avons rédigé dans un document informatique partagé les règles suivantes, mardi 25 août 2015 :
 
 1. faire son lit tous les matins ;
 2. au coucher, regagner sa chambre au plus tard à 21 heures, pour une extinction de feux à 21 h 30 maximum ;
@@ -14,6 +16,8 @@ Juste avant le retour de vacances de son fils, nous avons posé les premières p
 4. se brosser les dents le matin, au moment de la douche, et le soir juste après le dîner (le brossage du midi est laissé à la discrétion de l'enfant quand il déjeune à la maison, dans la mesure où il ne peut pas se laver les dents quand il mange au restaurant scolaire) ; 
 5. se laver les mains avant chaque repas et après chaque passage aux toilettes ;
 6. débarrasser la table quand présent au repas.
+
+Il n'y avait là de formalisé que des règles déjà en vigueur. Rien de nouveau mais bien souvent rien d'acquis non plus, malgré le passage des ans.
 
 J'ai milité en faveur de trois mises en garde à chaque infraction caractérisée avant le déclenchement d'une sanction, ce serait finalement au bout de la quatrième que nous sévirions ma femme et moi. Dans l'esprit, il s'agit vraiment de faire exister notre couple sur le plan de l'autorité parentale, ce qui pourrait avoir des effets positifs sur le plan conjugual. Ce système a vocation de s'appliquer aux deux enfants, celui de ma femme et notre bébé, sans discrimination. Il s'agit de faire régner un climat de justice.
 
@@ -26,6 +30,12 @@ Cela nous faisait déjà deux règles à ajouter ou préciser. Heureusement, alo
 L'enfant avait toujours fini par l'emporter, à faire plier les adultes par le passé.
 
 Cette fois-ci la partie promet d'être intéressante.
+
+***
+
+Si je me base sur ce que j'ai pu vivre il y a un an et le client familial explosif et délétère, je ne pouvais qu'appréhender cette période de rentrée des classes.
+
+Il concernerait nos deux enfants. Juste.
 
 ***
 
