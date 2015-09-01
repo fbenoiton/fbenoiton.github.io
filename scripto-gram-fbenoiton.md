@@ -1,12 +1,14 @@
 ## La rentrée de tous les dangers
 
-L'espoir vient de renaître. Je me suis même dit, à un moment, que d'ici la fin programmée de la plateforme Scriptogram, dans moins de deux semaines maintenant, la vie de mon foyer recomposé serait en bonne voie de normalisation et que je ne ressentirais plus le besoin de tenir un blog tel que celui-ci. J'ai vite tempéré mon imagination.
+L'espoir vient de renaître. Je me suis même dit que la vie de mon foyer recomposé était en bonne voie de normalisation. La raison d'être de ce blog disparaîtrait en même temps que la plateforme Scriptogram, dont l'arrêt est programmé dans moins de deux semaines.
 
-Au printemps dernier, j'avais décidé de laisser tomber toute velléité éducative à l'égard du fils de ma femme, qui ne serait jamais déterminée à exercer une autorité parentale sur l'enfant tyrannique. Quand elle ne condamnait pas mes efforts, je me retrouvais toujours seul face à la toute-puissance de l'enfant à tenter de poser quelques limites, finalement disqualifié ou désavoué d'une façon ou d'une autre.
+J'ai tempéré mon imagination.
+
+Au printemps dernier, j'avais décidé de renoncer à toute velléité éducative à l'égard du fils de ma femme. Rien à faire, celle-ci ne serait jamais déterminée à exercer une autorité parentale sur l'enfant tyrannique. Quand elle ne condamnait pas mes efforts, je me retrouvais toujours seul face à la toute-puissance de l'enfant, tentant de poser quelques limites pour finir disqualifié ou désavoué d'une façon ou d'une autre.
 
 On ne m'y reprendrait plus, c'était une cause perdue. Je devais m'arranger autrement, même si je ne savais toujours pas comment.
 
-Or cet été, sous l'impulsion de notre thérapeute familial, le volet éducatif est revenu sur le devant de la scène, notre couple s'étant retrouvé, comme l'an passé à pareille époque, au bord du goufre de la rupture. À l'issue de la dernière séance, ma femme et moi avons convenu de nous réunir hebdomadairement pour mettre en place une poignée de règles de vie simples pour la maison. Si celles-ci étaient enfreintes répétitivement il y aurait sanction, le caractère provocateur des infractions devenant évident.
+Or cet été, sous l'impulsion de notre thérapeute familial, le volet éducatif est revenu sur le devant de la scène. Notre couple s'était retrouvé, comme l'an passé à pareille époque, au bord du goufre de la rupture. À l'issue de la dernière séance, ma femme et moi avons convenu de nous réunir hebdomadairement pour mettre en place une poignée de règles simples pour la maison. Si celles-ci étaient enfreintes répétitivement il y aurait sanction, le caractère provocateur des infractions devenant évident.
 
 Deux jours avant le retour de vacances du garçon, nous avons rédigé dans un document informatique partagé les règles suivantes :
 
@@ -17,15 +19,17 @@ Deux jours avant le retour de vacances du garçon, nous avons rédigé dans un d
 5. se laver les mains avant chaque repas et après chaque passage aux toilettes ;
 6. débarrasser la table quand présent au repas.
 
-Il n'y avait là de formalisé que des règles déjà en vigueur. Rien de nouveau mais bien souvent rien d'acquis non plus, malgré le passage des ans.
+Il n'y avait là de formalisé que des règles déjà en vigueur. Rien de nouveau mais, bien souvent, rien d'acquis non plus, malgré le passage des ans.
 
-J'ai milité en faveur de trois rappels à l'ordre avant le déclenchement d'une sanction, c'est finalement au bout du quatrième seulement que nous sévirions ma femme et moi. 
+J'ai milité en faveur de trois rappels à l'ordre avant le déclenchement d'une sanction. C'est finalement au bout du quatrième que nous sévirions ma femme et moi. 
 
-L'enfant est rentré le jeudi soir 27 août 2015. Les circonstances se prêtaient d'autant plus à ce que le lavage des dents passe à l'as qu'il était censé avoir dîné sur le chemin du retour. Mais j'y ai pensé et ma femme a fait appliquer la règle, commençant à le mettre au parfum du nouveau système de fonctionnement.
+L'enfant est rentré le jeudi soir 27 août 2015. Les circonstances se prêtaient d'autant plus à ce que le lavage des dents passe à l'as qu'il était censé avoir dîné sur le chemin du retour. Ma femme a fait appliquer la règle, commençant à le mettre au parfum du nouveau système de fonctionnement.
 
-Elle a bientôt dû le reprendre parce qu'il s'est mis à ne plus se tenir au-dessus du lavabo. Plus tard, je me suis aperçu qu'il n'avait pas éteint la salle de bains derrière lui. Ce sont deux points qu'il sait sensibles pour avoir été repris de nombreuses fois là-dessus. Derrière une apparente soumission, ces petits écarts ne manquent pas de faire naître l'irritation chez l'adulte.
+Elle a bientôt dû le reprendre parce qu'il s'est mis à ne plus se tenir au-dessus du lavabo. Plus tard, je me suis aperçu qu'il n'avait pas éteint la salle de bains derrière lui. Il a déjà été tellement de fois repris là-dessus. Sous l'apparente soumission, ces petits écarts ne manquent pas de faire naître l'irritation.
 
-Cela nous faisait en tout cas déjà deux points de réglement tout cuits et prêts à être ajoutées à notre petit édifice éducatif. Le piège de la surenchère était prêt à se refermer. Nous nous sommes retenus in extremis : appliquons peu de règles, mais appliquons-les bien. Celle concernant le coucher a été donnée au passage.
+Cela nous faisait en tout cas déjà deux points de réglement tout cuits à ajouter à notre  édifice éducatif balbutiant. Le piège de la surenchère était prêt à se refermer. Nous nous sommes retenus in extremis : appliquons peu de règles, mais appliquons-les bien.
+
+Celle concernant le coucher a été donnée au passage.
 
 ***
 
