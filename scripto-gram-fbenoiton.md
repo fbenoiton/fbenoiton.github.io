@@ -1,37 +1,4 @@
-## La rentrée de tous les dangers
-
-L'espoir venait de renaître. Je me suis même dit que la vie de mon foyer recomposé était en bonne voie de normalisation. La raison d'être de ce blog disparaîtrait en même temps que la plateforme Scriptogram, dont l'arrêt est programmé dans moins de deux semaines.
-
-J'ai tempéré mon imagination.
-
-Au printemps dernier, j'avais décidé de renoncer à toute velléité éducative à l'égard du fils de ma femme. Rien à faire, ma femme ne serait jamais déterminée à exercer son autorité parentale sur l'enfant tyrannique. Et quand elle ne condamnait pas mes efforts, je me retrouvais toujours seul face à la toute-puissance de l'enfant, pour finir disqualifié ou désavoué dans mes tentatives de poser des limites.
-
-C'était une cause perdue, on ne m'y reprendrait plus. Je devais m'arranger autrement, même si je ne savais toujours pas comment.
-
-Or cet été, sous l'impulsion de notre thérapeute familial, le volet éducatif est revenu au premier plan. Comme notre couple s'était peu avant retrouvé au bord du gouffre de la rupture, comme l'an passé à pareille époque, je me suis laissé porter par le courant. À la fin de la dernière séance, nous avons convenu de mettre en place quelques règles simples pour la maison. Si celles-ci étaient enfreintes répétitivement, il y aurait sanction, le caractère provocateur des infractions devenant évident.
-
-Deux jours avant le retour de vacances du garçon, nous avons enregistré dans un document informatique partagé les points suivants :
-
-1. faire son lit tous les matins ;
-2. au coucher, regagner sa chambre au plus tard à 21 heures, pour une extinction des feux à 21 h 30 dernier carat ;
-3. prendre une douche tous les jours ;
-4. se brosser les dents le matin, au moment de la douche, et le soir, juste après le dîner. (Le midi le brossage est laissé à la discrétion de l'enfant les jours où il déjeune à la maison, comme il ne se les lave les jours de restaurant scolaire) ;
-5. se laver les mains avant chaque repas et après chaque passage aux toilettes ;
-6. débarrasser la table à la fin des repas.
-
-Il n'y avait là rien de nouveau mais, bien souvent, rien d'acquis non plus, malgré le passage des ans.
-
-J'ai milité en faveur de trois rappels à l'ordre avant le déclenchement d'une sanction. C'est finalement au bout du quatrième que nous sévirions ma femme et moi.
-
-L'enfant est rentré jeudi soir 27 août 2015. Les circonstances se prêtaient d'autant plus à ce que le lavage des dents passe à l'as qu'il était censé avoir déjà dîné. Ma femme a fait appliquer la règle, en profitant pour commencer à le mettre au parfum du nouveau système de fonctionnement, et donné au passage celle relative au coucher.
-
-Elle a bientôt dû le reprendre parce qu'il s'est mis à ne plus se tenir au-dessus du lavabo. Plus tard, je me suis aperçu qu'il n'avait pas éteint la salle de bains derrière lui. Il a déjà été tellement de fois repris là-dessus. Sous l'apparente soumission, ces petits écarts ne manquent pas de faire naître l'irritation.
-
-Cela nous faisait en tout cas déjà deux points de réglement tout cuits à ajouter à notre  édifice éducatif balbutiant. Le piège de la surenchère était prêt à se refermer. C'était sans compter sur notre présence d'esprit. Commençons par peu de règles, mais appliquons-les bien.
-
-L'avenir montrerait rapidement que nous faisions bien.
-
-***
+## 
 
 Si je me base sur ce que j'ai pu vivre il y a un an et le client familial explosif et délétère, je ne pouvais qu'appréhender cette période de rentrée des classes.
 
