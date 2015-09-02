@@ -4,11 +4,11 @@ L'espoir vient de renaître. Je me suis même dit que la vie de mon foyer recomp
 
 J'ai tempéré mon imagination.
 
-Au printemps dernier, j'avais décidé de renoncer à toute velléité éducative à l'égard du fils de ma femme. Rien à faire, celle-ci ne serait jamais déterminée à exercer une autorité parentale sur l'enfant tyrannique. Quand elle ne condamnait pas mes efforts, je me retrouvais toujours seul face à la toute-puissance de l'enfant, tentant de poser quelques limites pour finir disqualifié ou désavoué d'une façon ou d'une autre.
+Au printemps dernier, j'avais décidé de renoncer à toute velléité éducative à l'égard du fils de ma femme. Rien à faire, ma femme ne serait jamais déterminée à exercer une autorité parentale sur l'enfant tyrannique. Quand elle ne condamnait pas mes efforts, je me retrouvais toujours seul face à la toute-puissance de l'enfant, tentant de poser quelques limites pour finir disqualifié ou désavoué d'une façon ou d'une autre.
 
 On ne m'y reprendrait plus, c'était une cause perdue. Je devais m'arranger autrement, même si je ne savais toujours pas comment.
 
-Or cet été, sous l'impulsion de notre thérapeute familial, le volet éducatif est revenu sur le devant de la scène. Notre couple s'était retrouvé, comme l'an passé à pareille époque, au bord du goufre de la rupture. À l'issue de la dernière séance, ma femme et moi avons convenu de nous réunir hebdomadairement pour mettre en place une poignée de règles simples pour la maison. Si celles-ci étaient enfreintes répétitivement il y aurait sanction, le caractère provocateur des infractions devenant évident.
+Or cet été, sous l'impulsion de notre thérapeute familial, le volet éducatif est revenu au premier plan. Notre couple s'était retrouvé, comme l'an passé à pareille époque, au bord du goufre de la rupture. À l'issue de la dernière séance, ma femme et moi avons convenu de nous réunir hebdomadairement pour mettre en place une poignée de règles simples pour la maison. Si celles-ci étaient enfreintes répétitivement il y aurait sanction, le caractère provocateur des infractions devenant évident.
 
 Deux jours avant le retour de vacances du garçon, nous avons rédigé dans un document informatique partagé les règles suivantes :
 
