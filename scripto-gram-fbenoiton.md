@@ -23,13 +23,13 @@ Il n'y avait là rien de nouveau mais, bien souvent, rien d'acquis non plus, mal
 
 J'ai milité en faveur de trois rappels à l'ordre avant le déclenchement d'une sanction. C'est finalement au bout du quatrième que nous sévirions ma femme et moi.
 
-L'enfant est rentré jeudi soir 27 août 2015. Les circonstances se prêtaient d'autant plus à ce que le lavage des dents passe à l'as qu'il était censé avoir dîné. Ma femme a fait appliquer la règle, en profitant pour commencer à le mettre au parfum du nouveau système de fonctionnement.
+L'enfant est rentré jeudi soir 27 août 2015. Les circonstances se prêtaient d'autant plus à ce que le lavage des dents passe à l'as qu'il était censé avoir déjà dîné. Ma femme a fait appliquer la règle, en profitant pour commencer à le mettre au parfum du nouveau système de fonctionnement, et donné au passage celle relative au coucher.
 
 Elle a bientôt dû le reprendre parce qu'il s'est mis à ne plus se tenir au-dessus du lavabo. Plus tard, je me suis aperçu qu'il n'avait pas éteint la salle de bains derrière lui. Il a déjà été tellement de fois repris là-dessus. Sous l'apparente soumission, ces petits écarts ne manquent pas de faire naître l'irritation.
 
-Cela nous faisait en tout cas déjà deux points de réglement tout cuits à ajouter à notre  édifice éducatif balbutiant. Le piège de la surenchère était prêt à se refermer. Nous nous sommes retenus in extremis : appliquons peu de règles, mais appliquons-les bien.
+Cela nous faisait en tout cas déjà deux points de réglement tout cuits à ajouter à notre  édifice éducatif balbutiant. Le piège de la surenchère était prêt à se refermer. C'était sans compter sur notre présence d'esprit. Commençons par peu de règles, mais appliquons-les bien.
 
-Celle concernant le coucher a été donnée au passage.
+L'avenir montrerait rapidement que nous faisions bien.
 
 ***
 
