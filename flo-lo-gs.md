@@ -4,15 +4,21 @@ Pour être juste, mercredi 12 août 2015, j'ai eu des nouvelles de l'étude d'hu
 
 > SELSARL ANQUETIL - LELIEVRE. Veuillez nous contacter au 02 33 19 12 00 pour votre dossier LA BANQUE POSTALE référencé :198570254.
 
-(N'allez pas mettre le bazar dans mon dossier en vous faisant passer pour moi.)
+(N'allez pas mettre le bazar dans mon dossier en vous faisant passer pour moi !)
 
-En fait, quand j'avais appelé, le 10 août, mon interlocutrice avait commencé par me demander cette fameuse référence pour pouvoir parler de mon affaire, que je n'avais pas puisque je n'avais pas reçu le courrier dont j'étais encore en attente de réexpédition, comme convenu ce lundi-là.
+En fait, quand j'avais appelé, le 10 août, mon interlocutrice avait commencé par me demander cette fameuse référence avant de pouvoir entrer dans le vif du sujet, que je n'avais pas puisque je n'avais pas reçu le courrier dont j'étais encore en attente de réexpédition, comme convenu ce lundi-là.
 
-J'ai reçu un autre SMS ...
+J'ai reçu un autre SMS 25 minutes plus tard :
 
-Twitter ...
+> SELSARL ANQUETIL - LELIEVRE VOUS INFORME QUE VOTRE DETTE LA BANQUE POSTALE de 71,13 RESTE TOUJOURS EN ATTENTE DE REGLEMENT. DOSSIER 198570254 REGLEMENT CB SUR ww
 
-Fil d'actualité Facebook ...
+Je vous confirme que ce n'est pas moi qui ai oublié de retranscrire l'intégralité du message, je vous le livre dans une présentation la plus proche possible de l'état d'origine. En tout cas il semblait maintenant que l'étude disposait en fait d'un site Web, reconnaissant le début de ce qui pourrait bien être une URL, mais je ne savais toujours pas lequel. En tout cas je réalise maintenant que le courrier était optionnel, que la SELSARL attendait uniquement un règlement, tellement fort qu'il n'était même plus besoin d'indiquer la devise où que le nombre demandé correspondait à une somme d'argent (j'aurais été ennuyé s'il s'était agi de renvoyer 71.13 bananes).
+
+Coïncidence, quelques minutes avant de recevoir ces SMS, j'avais accepté du site web Twitter de donner mon numéro de téléphone portable pour augmenter la sécurité de mon compte @fbenoiton, via un code reçu par SMS. Dans la configuration des options j'avais, après avoir hésité, accepté de recevoir des notifications SMS Twitter liés à l'activité de mon compte par SMS (j'avais laissé cochée la case des notifications SMS), pour voir.
+
+Depuis, je n'ai jamais reçu le plus petit SMS estampillé Twitter.
+
+Toujours aussi en forme, mon fil d'actualité Facebook s'est quant à lui fait ce jour-là l'écho d'une heureuse initiative de la Banque postale, justement, sous la forme d'une invitation au voyage (copie d'écran) : 
 
 ***
 
