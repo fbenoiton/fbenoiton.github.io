@@ -1,10 +1,10 @@
-## Le SMS de la honte
+## Les deux font la paire
 
 Pour être juste, mercredi 12 août 2015, j'ai eu des nouvelles de l'étude d'huissier coutançaise, mais pas celles attendues. J'ai reçu un SMS à 10 h 02 :
 
 > SELSARL ANQUETIL - LELIEVRE. Veuillez nous contacter au 02 33 19 12 00 pour votre dossier LA BANQUE POSTALE référencé :198570254.
 
-(N'allez pas mettre le bazar dans mon dossier en vous faisant passer pour moi !)
+(N'allez pas mettre encore plus le bazar dans mon dossier !)
 
 En fait, quand j'avais appelé, le 10 août, mon interlocutrice avait commencé par me demander cette fameuse référence avant de pouvoir entrer dans le vif du sujet, que je n'avais pas puisque je n'avais pas reçu le courrier dont j'étais encore en attente de réexpédition, comme convenu ce lundi-là.
 
@@ -12,13 +12,15 @@ J'ai reçu un autre SMS 25 minutes plus tard :
 
 > SELSARL ANQUETIL - LELIEVRE VOUS INFORME QUE VOTRE DETTE LA BANQUE POSTALE de 71,13 RESTE TOUJOURS EN ATTENTE DE REGLEMENT. DOSSIER 198570254 REGLEMENT CB SUR ww
 
-Je vous confirme que ce n'est pas moi qui ai oublié de retranscrire l'intégralité du message, je vous le livre dans une présentation la plus proche possible de l'état d'origine. En tout cas il semblait maintenant que l'étude disposait en fait d'un site Web, reconnaissant le début de ce qui pourrait bien être une URL, mais je ne savais toujours pas lequel. En tout cas je réalise maintenant que le courrier était optionnel, que la SELSARL attendait uniquement un règlement, tellement fort qu'il n'était même plus besoin d'indiquer la devise où que le nombre demandé correspondait à une somme d'argent (j'aurais été ennuyé s'il s'était agi de renvoyer 71.13 bananes).
+Je vous confirme que ce n'est pas moi qui ai oublié de retranscrire l'intégralité du message, je vous le livre dans une présentation la plus proche possible de l'état d'origine. En tout cas il semblait maintenant que l'étude disposait en fait d'un site Web, reconnaissant le début de ce qui pourrait bien être une URL, mais je ne savais toujours pas lequel. En tout cas je réalise maintenant que le courrier était optionnel, que la SELSARL attendait uniquement un règlement, tellement fort qu'il n'était même plus besoin d'indiquer la devise où que le nombre demandé correspondait à une somme d'argent (j'aurais été ennuyé s'il s'était agi de renvoyer 71.13 bananes). Me donner des explications était son dernier souci.
 
 Coïncidence, quelques minutes avant de recevoir ces SMS, j'avais accepté du site web Twitter de donner mon numéro de téléphone portable pour augmenter la sécurité de mon compte @fbenoiton, via un code reçu par SMS. Dans la configuration des options j'avais, après avoir hésité, accepté de recevoir des notifications SMS Twitter liés à l'activité de mon compte par SMS (j'avais laissé cochée la case des notifications SMS), pour voir.
 
 Depuis, je n'ai jamais reçu le plus petit SMS estampillé Twitter.
 
-Toujours aussi en forme, mon fil d'actualité Facebook s'est quant à lui fait ce jour-là l'écho d'une heureuse initiative de la Banque postale, justement, sous la forme d'une invitation au voyage (copie d'écran) : 
+Toujours aussi en forme, mon fil d'actualité Facebook s'est quant à lui fait ce jour-là l'écho d'une heureuse initiative de la Banque postale, justement, sous la forme d'une invitation au voyage (copie d'écran) : *"Tentez de gagner un week-end pour deux à Barcelone"*.
+
+Pourquoi pour deux ? Il y a plus de chance qu'au moins l'un des deux partants ait encore un compte en banque. Avec la Banque postale, c'est plus prudent. Et si vous jouez de malchance, il n'y a que deux jours à tenir.
 
 ***
 
