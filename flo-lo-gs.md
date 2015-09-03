@@ -1,4 +1,20 @@
-## 
+## Le SMS de la honte
+
+Pour être juste, mercredi 12 août 2015, j'ai eu des nouvelles de l'étude d'huissier coutançaise, mais pas celles attendues. J'ai reçu un SMS à 10 h 02 :
+
+> SELSARL ANQUETIL - LELIEVRE. Veuillez nous contacter au 02 33 19 12 00 pour votre dossier LA BANQUE POSTALE référencé :198570254.
+
+(N'allez pas mettre le bazar dans mon dossier en vous faisant passer pour moi.)
+
+En fait, quand j'avais appelé, le 10 août, mon interlocutrice avait commencé par me demander cette fameuse référence pour pouvoir parler de mon affaire, que je n'avais pas puisque je n'avais pas reçu le courrier dont j'étais encore en attente de réexpédition, comme convenu ce lundi-là.
+
+J'ai reçu un autre SMS ...
+
+Twitter ...
+
+Fil d'actualité Facebook ...
+
+***
 
 Mercredi 12 : aussi réception SMS huissiers SESARL pour la Banque postale avec un numéro de dossier. Alors que quelques minutes plutôt j'ai donné pour la sécurité mon portable, sur la proposition du site web, en laissant les notifications SMS cochées pour voir [Twitter @fbenoiton]... Moi qui pensais naïvement qu'ils voulaient qu'on se rabiboche avec la Banque postale.
 
