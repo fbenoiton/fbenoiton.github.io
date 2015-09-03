@@ -18,14 +18,13 @@ Coïncidence, quelques minutes avant de recevoir ces SMS, j'avais accepté du si
 
 Depuis, je n'ai jamais reçu le plus petit SMS estampillé Twitter.
 
-Toujours aussi en forme, mon fil d'actualité Facebook s'est quant à lui fait ce jour-là l'écho d'une heureuse initiative de la Banque postale, justement, sous la forme d'une invitation au voyage (copie d'écran) : *"Tentez de gagner un week-end pour deux à Barcelone"*.
+Toujours aussi en forme, mon fil d'actualité Facebook s'est quant à lui fait le lendemain l'écho d'une heureuse initiative de la Banque postale, justement, sous la forme d'une invitation au voyage (copie d'écran) : *"Tentez de gagner un week-end pour deux à Barcelone"*.
 
 Pourquoi pour deux ? Il y a plus de chance qu'au moins l'un des deux partants ait encore un compte en banque. Avec la Banque postale, c'est plus prudent. Et si vous jouez de malchance, il n'y a que deux jours à tenir.
 
 ***
 
-Mercredi 12 : aussi réception SMS huissiers SESARL pour la Banque postale avec un numéro de dossier. Alors que quelques minutes plutôt j'ai donné pour la sécurité mon portable, sur la proposition du site web, en laissant les notifications SMS cochées pour voir [Twitter @fbenoiton]... Moi qui pensais naïvement qu'ils voulaient qu'on se rabiboche avec la Banque postale.
-
+Mercredi 12 : réception SMS huissiers SESARL pour la Banque postale avec un numéro de dossier. Moi qui pensais naïvement qu'ils voulaient qu'on se rabiboche avec la Banque postale (comme par le courrier attendu).
 Jeudi 13 : Une invitation au voyage dans mon fil Facebook (copie d'écran).
 
 (solde resté négatif)En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
