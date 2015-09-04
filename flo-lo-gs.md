@@ -1,28 +1,34 @@
 ## Les deux font la paire
 
-Pour être juste, mercredi 12 août 2015, j'ai eu des nouvelles de l'étude d'huissier coutançaise, mais pas celles attendues. J'ai reçu un SMS à 10 h 02 :
+Mercredi 12 août 2015, j'ai quand même eu des nouvelles de l'étude d'huissier coutançaise, même si ce n'étaient pas celles attendues. J'ai reçu un SMS à 10 h 02 :
 
 > SELSARL ANQUETIL - LELIEVRE. Veuillez nous contacter au 02 33 19 12 00 pour votre dossier LA BANQUE POSTALE référencé :198570254.
 
 (N'allez pas mettre encore plus le bazar dans mon dossier !)
 
-En fait, quand j'avais appelé, le 10 août, mon interlocutrice avait commencé par me demander cette fameuse référence avant de pouvoir entrer dans le vif du sujet, que je n'avais pas puisque je n'avais pas reçu le courrier dont j'étais encore en attente de réexpédition, comme convenu ce lundi-là.
+En fait, quand j'avais appelé, le 10 août, mon interlocutrice avait commencé par me demander un numéro de dossier avant de pouvoir entrer dans le vif du sujet, que je n'avais pas puisque je n'avais pas reçu le courrier dont j'étais encore en attente de réexpédition, comme convenu ce lundi-là.
 
-J'ai reçu un autre SMS 25 minutes plus tard :
+J'ai reçu un autre SMS, 25 minutes plus tard :
 
 > SELSARL ANQUETIL - LELIEVRE VOUS INFORME QUE VOTRE DETTE LA BANQUE POSTALE de 71,13 RESTE TOUJOURS EN ATTENTE DE REGLEMENT. DOSSIER 198570254 REGLEMENT CB SUR ww
 
-Je vous confirme que ce n'est pas moi qui ai oublié de retranscrire l'intégralité du message, je vous le livre dans une présentation la plus proche possible de l'état d'origine. En tout cas il semblait maintenant que l'étude disposait en fait d'un site Web, reconnaissant le début de ce qui pourrait bien être une URL, mais je ne savais toujours pas lequel. En tout cas je réalise maintenant que le courrier était optionnel, que la SELSARL attendait uniquement un règlement, tellement fort qu'il n'était même plus besoin d'indiquer la devise où que le nombre demandé correspondait à une somme d'argent (j'aurais été ennuyé s'il s'était agi de renvoyer 71.13 bananes). Me donner des explications était son dernier souci.
+Je vous confirme que ce n'est pas moi qui ai oublié de retranscrire l'intégralité du message. D'une façon générale, j'essaie de vous livrer dans ces pages les SMS dans une présentation la plus proche possible de ce qui m'arrive.
 
-Coïncidence, quelques minutes avant de recevoir ces SMS, j'avais accepté du site web Twitter de donner mon numéro de téléphone portable pour augmenter la sécurité de mon compte @fbenoiton, via un code reçu par SMS. Dans la configuration des options j'avais, après avoir hésité, accepté de recevoir des notifications SMS Twitter liés à l'activité de mon compte par SMS (j'avais laissé cochée la case des notifications SMS), pour voir.
+En tout cas il semblait que l'étude disposait bien d'un site Web, la fin du message faisant penser au début d'une URL.
 
-Depuis, je n'ai jamais reçu le plus petit SMS estampillé Twitter.
+Je réalise maintenant qu'on aurait pu se passer du renvoi du courrier papier. La SELSARL n'attendait de moi qu'un règlement, à tel point d'ailleurs qu'il n'était plus besoin d'indiquer la devise d'un nombre dont on déduit qu'il représente une somme d'argent (71 € et des bananes). Donner des explications et du sens à notre relation me paraissait son dernier souci, ce que je trouve triste pour les deux parties.
 
-Toujours aussi en forme, mon fil d'actualité Facebook s'est quant à lui fait le lendemain l'écho d'une heureuse initiative de la Banque postale, justement, sous la forme d'une invitation au voyage (copie d'écran) : *"Tentez de gagner un week-end pour deux à Barcelone"*.
+Je sentais de plus en plus une étude d'huissier complètement centrée sur elle-même, ce qui la menait tout droit au dysfonctionnement.
+
+Coïncidence, quelques minutes avant de recevoir ces textos, je venais d'accepter la demande du site web de Twitter de renseigner mon numéro de téléphone portable pour augmenter la sécurité de l'accès à mon compte [@fbenoiton][1] (avec une activation via un code, un simple nombre, reçu par SMS). Dans la configuration des options j'avais, après avoir hésité, accepté de recevoir des notifications Twitter par SMS liés à l'activité de mon compte (j'avais laissé cochée la case), pour voir (je n'ai jamais rien reçu depuis).
+
+[1]: http://twitter.com/fbenoiton
+
+De son côté, mon fil d'actualité Facebook s'est fait l'écho le lendemain d'une heureuse initiative de la Banque postale, sous la forme d'une invitation au voyage (copie d'écran) : *"Tentez de gagner un week-end pour deux à Barcelone"*.
 
 Capture d'écran 2015-08-14 18.24.56
 
-Pourquoi pour deux ? Il y a plus de chance qu'au moins l'un des deux partants ait encore un compte en banque. Avec la Banque postale, c'est plus prudent. Et si vous jouez de malchance, il n'y a que deux jours à tenir.
+Pour deux c'est plus sûr, il y a plus de chance qu'au moins l'un des deux partants ait encore un compte en banque. Avec la Banque postale, c'est plus prudent ! Et si l'on joue  de malchance, il n'y a que deux jours à tenir.
 
 ***
 
