@@ -22,11 +22,15 @@ Coïncidence, quelques minutes avant de recevoir ces textos, je venais d'accepte
 
 [1]: http://twitter.com/fbenoiton
 
-Mon fil d'actualité Facebook n'était pas en reste en se faisant l'écho, le lendemain, d'une heureuse initiative de la Banque postale : *"Tentez de gagner un week-end pour deux à Barcelone"*, invitait la publicité (copie d'écran).
+Mon fil d'actualité Facebook n'était pas en reste, se faisant l'écho, le lendemain, d'une initiative de la Banque postale en forme d'invitation au voyage : *"Tentez de gagner un week-end pour deux à Barcelone"*, disait la publicité (copie d'écran).
 
 Capture d'écran 2015-08-14 18.24.56
 
-Pour deux c'est plus sûr, il y a plus de chance qu'au moins l'un des deux partants ait encore un compte en banque. Avec la Banque postale, c'est plus prudent ! Et si l'on joue  de malchance, il n'y a que deux jours à tenir.
+Pour deux c'est plus sûr, il y a plus de chance qu'au moins un des partants ait encore un compte bancaire. Et si l'on joue de malchance, il n'y a que deux jours à tenir.
+
+Dernière minute, ma femme vient de me montrer le collage de gommettes réalisé par mon fils jeudi 3 septembre 2015 à la halte-garderie :
+
+
 
 ***
 
