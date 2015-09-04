@@ -30,7 +30,7 @@ Pour deux c'est plus sûr, il y a plus de chance qu'au moins un des partants ait
 
 Dernière minute, ma femme vient de me montrer le collage de gommettes réalisé par mon fils jeudi 3 septembre 2015 à la halte-garderie :
 
-<a href="https://www.flickr.com/photos/benwatt/20944359338/" title="2015.09.04.dessin.soa"><img src="https://farm1.staticflickr.com/624/20944359338_c3a728575a.jpg" width="500" height="354" alt="Dessin d'enfant."></a>
+<a href="https://www.flickr.com/photos/benwatt/20944359338/" title="2015.09.04.dessin.soa"><img src="https://farm1.staticflickr.com/624/20944359338_c3a728575a.jpg" width="500" height="354" alt="Dessin d'enfant. Sur fond de deux papillons imprimés au trait noir, collage de gommettes de figures géométriques et d'animaux, dont un oiseau bleu qui fait penser à Twitter."></a>
 
 ***
 
