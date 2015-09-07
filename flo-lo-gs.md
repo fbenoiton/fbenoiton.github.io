@@ -12,6 +12,13 @@ Mais avant toute chose je voulais voir si je pouvais attester des SMS que j'avai
 
 Capture d'écran 2015-09-07 17.23.20
 
+Je vais faire aussi une photo du courrier papier, parce que il n'y a que ma femme qui sait se servir de la fonction de numérisation de son imprimante.
+
+D'après le cachet déjà le courrier n'est parti que le 11 août ...
+
+*Illustration finale*
+https://www.flickr.com/photos/benwatt/21227441421/in/dateposted/
+
 ***
 
 (solde resté négatif)En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
