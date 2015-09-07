@@ -1,10 +1,12 @@
 ## Quoi qu'il arrive
 
-Je me suis dit que je ferais tout aussi bien d'écrire mon dernier post sur Scriptogram, face aux difficultés que j'éprouve à le mettre à jour. Ce qui est un peu bête, c'est que sur cette base, je me suis avisé du fait que le dernier publié, [La rentrée de tous les dangers][1], aurait fait une excellente publication finale, réintroduisant un mince espoir avec tout de suite suspens. Il faut quand même convenir que cette fin d'été est largement moins catastrophique que la précédente, même si tout est loin d'être réglé et que le pire est peut-être encore à venir.
-
-Mais bon, c'est comme ça, autant aller jusqu'au bout.
+Finalement, je me suis dit que je ferais tout aussi bien d'écrire mon dernier post sur Scriptogram. Et en y réfléchissant encore je me dis que c'est un peu bête, le précédent, [La rentrée de tous les dangers][1], ferait une excellente publication finale, mettant en scène un regain d'espoir sur fond de menace planante.
 
 [1]: http://scriptogr.am/fbenoiton/post/la-rentree-de-tous-les-dangers
+
+Il faut quand même convenir que cette fin d'été est largement moins catastrophique que celle de l'année dernière. Bien sûr, tout est loin d'être réglé et le péril encore grand. Qui sait, le pire est peut-être encore à venir. Mais l'introduction des règles me semble pour l'heure extrêmement prometteur. L'important n'est pas qu'elle soient respectées à la lettre, mais qu'elles continuent d'exister quoi qu'il arrive. Je trouve l'image du code de la route excellente.
+
+C'est reposant, et à la limite jouissif, de mettre l'enfant dans une position où, finalement, ce n'est plus contre vous qu'il se bat, contre votre volonté, mais contre les règles qu'il se débat. Un combat perdu d'avance, si vous voulez mon avis, à partir du moment où celles-ci sont parfaitement légitimes, pour leur époque.
 
 Je n'aurais pas fait ce qui était prévu avec le petit cahier rouge de mes notes orphelines. Trop nombreuses, je m'étais dit que je pouvais les retranscrire au plus vite, telles quelles, dans mon journal électronique, et rendre en compte ici du processus. Ce n'est même plus d'actualité. Je suis convaincu maintenant qu'il fallait que je me décide à arrêter ce blog sur cette plateforme, même s'il n'était pas encore tout à fait sûr qu'elle s'arrête. Et puis c'était un peu se mentir à soi-même en se disant de publier le plus possible avant la fin.
 
