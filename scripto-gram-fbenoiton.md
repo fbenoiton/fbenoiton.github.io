@@ -22,4 +22,4 @@ J'ai dû beaucoup prendre sur moi et j'ai pu me rendre compte que, comme tout le
 
 Vu la vitesse à laquelle l'enfant alourdit son karma, du fait d'une conscience morale encore embryonnaire, je voulais saluer son sens du sacrifice, même si ce n'est peut-être pas en parfaite connaissance de cause.
 
-Pourrais-je un jour rembourser ma dette ?
+Pourrais-je un jour effacer ma dette ?
