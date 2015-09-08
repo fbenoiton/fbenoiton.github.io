@@ -16,7 +16,7 @@ Bizarrement, ces derniers jours, j'avais l'impression de manquer encore plus de 
 
 Enfin, je dois préciser que, si j'ai présenté dans mes lignes le fils de ma femme sous un jour franchement négatif, l'enfant m'a énormément apporté, en bientôt trois ans, dans mon développement personnel. S'il m'a rendu jour après jour la vie impossible, au point d'avoir souvent eu envie de jeter l'éponge ou de me laisser mourir, je crois qu'il m'a fait devenir une meilleure personne, un meilleur éducateur. Je crois même commencer à en sentir les effets bénéfiques dans d'autres secteurs de ma vie.
 
-J'ai dû beaucoup prendre sur moi et j'ai pu me rendre compte que, comme tout le monde, je pouvais avoir des réactions moins glorieuses que je ne pouvais le penser lorsque j'étais poussé dans mes derniers retranchements.
+J'ai dû beaucoup prendre sur moi et j'ai pu me rendre compte que, comme tout le monde, je pouvais avoir des réactions moins glorieuses que je ne le pensais quand j'étais poussé dans mes derniers retranchements.
 
 Vu la vitesse à laquelle l'enfant alourdit son karma, du fait d'une conscience morale encore embryonnaire, je voulais pour finir saluer son sens du sacrifice, même si ce n'est peut-être pas en parfaite connaissance de cause.
 
