@@ -1,6 +1,6 @@
 ## Quoi qu'il arrive
 
-Finalement, je me suis dit que je ferais tout aussi bien d'écrire dès à présent mon dernier post sur Scriptogram. D'ailleurs, je me dis que c'est un peu bête, celui juste avant, [La rentrée de tous les dangers][1], aurait fait une excellente conclusion, par sa mise en scène du regain d'espoir sur fond de menace planante.
+Finalement, je me suis dit que je ferais tout aussi bien d'écrire dès à présent mon dernier post sur Scriptogram, même s'il n'est pas sûr à 100 % que la plateforme tire sa révérence. D'ailleurs, je me dis que c'est un peu bête, celui juste avant, [La rentrée de tous les dangers][1], aurait fait une excellente conclusion, par sa mise en scène du regain d'espoir sur fond de menace planante.
 
 [1]: http://scriptogr.am/fbenoiton/post/la-rentree-de-tous-les-dangers
 
@@ -10,9 +10,7 @@ L'important n'est pas qu'elle soient respectées à la lettre, mais qu'elles con
 
 C'est reposant, et à la limite jouissif, de mettre l'enfant dans une position où ce n'est plus contre vous qu'il se bat, contre votre volonté, mais contre des règles qu'il se débat, seul. Un combat perdu d'avance, si vous voulez mon avis, à partir du moment où ce qui est imposé est légitime, pour les critères de l'époque.
 
-Finalement, je n'aurais pas fait ce qui était prévu pour les notes orphelines de mon petit petit cahier rouge. Après avoir souhaité les exploiter sur ce blog avant la fermeture de la plateforme qui l'héberge, je m'étais bientôt dit que je pourrais, au moins, les retranscrire au plus vite dans mon journal électronique, et rendre compte ici du processus, d'ici le 14 septembre.
-
-Je suis convaincu qu'il faut arrêter, même s'il n'est pas complètement certain que Scriptogram tire sa révérence. Vouloir publier le plus possible d'ici la fin n'était qu'une façon de surseoir à la mise en oeuvre de ce que j'allais faire par la suite.
+Finalement, je n'aurais pas fait ce qui était prévu pour les notes orphelines de mon petit cahier rouge. Après avoir annoncé les exploiter sur ce blog avant fermeture, je m'étais bientôt dit que je pourrais, au moins, les retranscrire au plus vite dans mon journal électronique, et rendre compte ici du processus, avant le 14 septembre.
 
 Bizarrement, ces derniers jours, j'avais l'impression de manquer encore plus de temps que d'habitude, d'être encore plus interrompu à tout bout de champ par mon environnement immédiat, d'avoir à ma disposition encore plus de distractions pour me maintenir éloigné de l'écriture. Le bébé, à nouveau enrhumé, réclame mon attention en permanence alors que d'habitude, il me laisse un peu travailler une fois qu'il a petit-déjeuné.
 
