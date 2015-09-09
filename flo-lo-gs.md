@@ -14,7 +14,15 @@ Capture d'écran 2015-09-07 17.23.20
 
 Je vais faire aussi une photo du courrier papier, parce que il n'y a que ma femme qui sait se servir de la fonction de numérisation de son imprimante.
 
-D'après le cachet déjà le courrier est parti le 11 août ...
+D'après le cachet le courrier, en date du 10 août, est parti le 11. Comme dans ce type de courrier, ici heureusement monochrome, le texte présente tout un assortiment et toutes les combinaisons possibles dans un joyeux mélange de mots tout en capitables, en italiques, en gras, soulignés.
+
+Au-delà de l'aspect artistique, il y a des espaces en trop dans la copie, devant les signes de ponctuation simples, par exemple, là où on sens que ce sont des champs complétés automatiquement par des données informatiques viennent s'intercaler (la somme due, le créancier pour lequel l'huissier opère...).
+
+La lettre simple venait toutefois lever toutes les petites incompréhensions qui me perturbaient. Par exemple :
+
+> **NOUS SOMMES VOTRE SEUL INTERLOCUTEUR.**
+
+Le plus important était bien sûr pour moi qu'il était écrit noir sur le blanc, même si ce n'était pas là le coeur du propos, que mon compte à la Banque postale avait bel et bien été *"cloturé"*.
 
 *Illustration finale*
 https://www.flickr.com/photos/benwatt/21227441421/in/dateposted/
