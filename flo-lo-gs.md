@@ -29,6 +29,8 @@ https://www.flickr.com/photos/benwatt/21227441421/in/dateposted/
 
 ***
 
+... ma rupture avec BP : fin d'une époque, ringard ...
+
 (solde resté négatif)En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
 
 pas bien perçu riche et célèbre
