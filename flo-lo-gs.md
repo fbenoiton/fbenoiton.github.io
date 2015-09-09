@@ -14,7 +14,7 @@ Capture d'écran 2015-09-07 17.23.20
 
 Je vais faire aussi une photo du courrier papier, parce que il n'y a que ma femme qui sait se servir de la fonction de numérisation de son imprimante.
 
-D'après le cachet déjà le courrier n'est parti que le 11 août ...
+D'après le cachet déjà le courrier est parti le 11 août ...
 
 *Illustration finale*
 https://www.flickr.com/photos/benwatt/21227441421/in/dateposted/
