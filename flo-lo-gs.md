@@ -22,7 +22,7 @@ La lettre simple parvenait toutefois à lever toutes les ambiguïtés, à commen
 
 > **NOUS SOMMES VOTRE SEUL INTERLOCUTEUR.**
 
-Le plus important était bien sûr pour moi qu'il était écrit noir sur le blanc, même si ce n'était pas le coeur du propos, que mon compte à la Banque postale avait bel et bien été *"cloturé"*.
+Le plus important était bien sûr pour moi qu'il était écrit noir sur le blanc, même si ce n'était pas le coeur du propos, que mon compte à la Banque postale avait bel et bien été *"clôturé le 30/07/2015"*.
 
 Tout était fini.
 
