@@ -10,13 +10,13 @@ Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini d'anéant
 
 Finalement, le grand jour arriva. Samedi 15 août 2015, jour de l'Assomption, ma femme trouva le fameux courrier de l'étude d'huissier de justice dans la boîte aux lettres conjugale (nous ne la relevons pas tous les jours).
 
-Avant de continuer, je voulais voir si je pouvais montrer que je ne racontais pas d'histoires, notamment le caractère tronqué des SMS reçus (copie d'écran).
+Avant de continuer, je voulais juste voir si je pouvais montrer que je ne racontais pas d'histoires, notamment le caractère tronqué des SMS reçus (copie d'écran).
 
 Capture d'écran 2015-09-07 17.23.20
 
-Le courrier, en date du 10 août, est parti le 11, d'après le cachet sur l'enveloppe. Le formatage du texte, heureusement monochrome, présente sans surprise toutes les combinaisons imaginables de l'italique, du gras, du souligné et de la capitalisation.
+Le courrier, en date du 10 août, était parti le 11, d'après le cachet sur l'enveloppe. Le formatage du texte présentait sans surprise toutes les combinaisons imaginables de l'italique, du gras, du souligné et de la capitalisation.
 
-À part la créativité artistique, il y a des espaces en trop dans la copie, devant les signes de ponctuation simples, là où on sens que ce sont les champs complétés automatiquement par des données informatiques qui viennent s'intercaler (la somme due, le nom du commanditaire, etc.).
+Il y avait aussi des espaces en trop dans la copie, avant et après chaque champ complété automatiquement (la date, ma civilité, la somme due, le nom du commanditaire, etc.), ce qui donne un résultat particulièrement malheureux quand les données informatique précèdent un signe de ponctuation simple.
 
 La lettre simple parvenait toutefois à lever toutes les ambiguïtés, à commencer par :
 
