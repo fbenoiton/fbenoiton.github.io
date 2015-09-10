@@ -8,20 +8,21 @@ Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini d'anéant
 
 Finalement, le grand jour arriva. Samedi 15 août 2015, jour de l'Assomption, ma femme trouva le fameux courrier de l'étude d'huissier de justice dans la boîte aux lettres conjugale (nous ne la relevons pas tous les jours).
 
-Avant de continuer, je voulais voir si je pouvais attester des SMS que j'avais reçus, pour bien montrer que je ne raconte pas d'histoires, notamment le caractère quelque peu tronqué des messages. Je crois que c'est ce que je peux faire de mieux, après de nombreux essais (copie d'écran à recadrer en production).
+Avant de continuer, je voulais voir si je pouvais montrer que je ne racontais pas d'histoires, notamment le caractère tronqué des SMS reçus (copie d'écran).
 
 Capture d'écran 2015-09-07 17.23.20
 
-D'après le cachet de l'enveloppe le courrier, en date du 10 août, est parti le 11. Comme dans ce type de missive, ici heureusement monochrome, le texte présente tout un assortiment et toutes les combinaisons possibles dans un joyeux mélange de mots tout en capitables, en italiques, en gras, soulignés.
+Le courrier, en date du 10 août, est parti le 11, d'après le cachet sur l'enveloppe. Le formatage du texte, heureusement monochrome, présente sans surprise toutes les combinaisons imaginables de l'italique, du gras, du souligné et de la capitalisation.
 
-Au-delà de l'aspect artistique, il y a des espaces en trop dans la copie, devant les signes de ponctuation simples, par exemple, là où on sens que ce sont des champs complétés automatiquement par des données informatiques viennent s'intercaler (la somme due, le créancier pour lequel l'huissier opère...).
+À part la créativité artistique, il y a des espaces en trop dans la copie, devant les signes de ponctuation simples, là où on sens que ce sont les champs complétés automatiquement par des données informatiques qui viennent s'intercaler (la somme due, le nom du commanditaire, etc.).
 
-La lettre simple venait toutefois lever toutes les petites incompréhensions qui me perturbaient. Par exemple :
+La lettre simple parvenait toutefois à lever toutes les ambiguïtés, à commencer par :
 
 > **NOUS SOMMES VOTRE SEUL INTERLOCUTEUR.**
 
-Le plus important était bien sûr pour moi qu'il était écrit noir sur le blanc, même si ce n'était pas là le coeur du propos, que mon compte à la Banque postale avait bel et bien été *"cloturé"*. Tout était fini entre nous.
+Le plus important était bien sûr pour moi qu'il était écrit noir sur le blanc, même si ce n'était pas le coeur du propos, que mon compte à la Banque postale avait bel et bien été *"cloturé"*.
 
+Tout était fini.
 
 ***
 
