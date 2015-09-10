@@ -1,10 +1,10 @@
 ## Loin du compte
 
-Pour tout dire, quand j'ai reçu le premier SMS de l'étude d'huissier, mercredi 12 août 2015, qui évoquait juste la dette mais pas encore son règlement, j'ai pensé naïvement qu'il y avait une intention de rabibochage entre la Banque postale et moi.
+Quand j'ai vu le premier SMS de l'étude d'huissier arriver, mercredi 12 août 2015, j'ai pensé que tout n'était pas perdu entre la Banque postale et moi. Comme j'étais en attente d'un courrier papier, je me suis dit que ce changement de programme signifiait signifiait une possible inflexion de l'autre partie.
 
-Comme j'avais été coopératif, allant jusqu'à donner ma nouvelle adresse sans difficulté, et que j'étais resté calme, mesuré et pondéré, l'étude s'était bien rendu compte qu'elle avait affaire là à une personne sensée, d'une probité par si calamiteuse, capable en fait de faire preuve d'une grande maturité d'esprit, avec laquelle on pouvait avoir un dialogue constructive, qui se situait pragmatiquement dans l'assertivité et non dans la fuite, l'attaque ou la manipulation, et qu'il ne s'agissait là que d'un malheureux malentendu, une sorte de cas de force majeure, et que tout allait pouvoir redevenir comme avant, ou presque.
+J'avais été coopératif, allant jusqu'à donner ma nouvelle adresse de mon plein gré. J'étais resté calme, mesuré et pondéré au téléphone. L'étude n'avait pu que se rendre compte qu'elle avait affaire à une personne sensée, avec laquelle on pouvait avoir un dialogue constructif, qui était dans l'assertivité et non dans la fuite, l'attaque ou la manipulation. Il ne pouvait s'agir là que d'un fâcheux malentendu, il n'y avait pas mauvaise intention cachée, tout allait pouvoir redevenir comme avant, ou presque.
 
-Bien sûr, le second SMS réceptionné une demi-heure plus tard a douché mes espoirs, mon imagination romantique. J'étais bien loin du compte.
+Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini de doucher ma naïveté romantique. J'étais bien loin du compte.
 
 Et le grand jour arriva bientôt. Samedi 15 août 2015, jour de l'Assomption, ma femme trouva le fameux courrier l'étude d'huissier dans la boîte aux lettres (certes, soyons honnêtes, nous ne la relevons pas tous les jours). L'Assomption ce n'est quand même pas rien, même si l'on ne se souvient jamais de ce que c'est (je parle pour moi, déjà).
 
@@ -24,8 +24,6 @@ La lettre simple venait toutefois lever toutes les petites incompréhensions qui
 
 Le plus important était bien sûr pour moi qu'il était écrit noir sur le blanc, même si ce n'était pas là le coeur du propos, que mon compte à la Banque postale avait bel et bien été *"cloturé"*. Tout était fini entre nous.
 
-*Illustration finale*
-https://www.flickr.com/photos/benwatt/21227441421/in/dateposted/
 
 ***
 
