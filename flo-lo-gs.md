@@ -14,9 +14,9 @@ Avant de continuer, je voulais juste voir si je pouvais montrer que je ne racont
 
 Capture d'écran 2015-09-07 17.23.20
 
-Le courrier, en date du 10 août, était parti le 11, d'après le cachet sur l'enveloppe. Le formatage du texte présentait sans surprise toutes les combinaisons imaginables de l'italique, du gras, du souligné et de la capitalisation.
+Le courrier type, en date du 10 août, était parti le 11, d'après le cachet sur l'enveloppe. Le formatage du texte explorait sans surprise les nombreuses combinaisons de l'italique, du gras, du souligné et de la capitalisation.
 
-Il y avait aussi des espaces en trop dans la copie, avant et après chaque champ complété automatiquement (la date, ma civilité, la somme due, le nom du commanditaire, etc.), ce qui donne un résultat particulièrement malheureux quand les données informatique précèdent un signe de ponctuation simple.
+Il y avait aussi des espaces en trop dans la copie, avant et après chaque champ complété automatiquement (la date, ma civilité, la somme due, le nom du commanditaire, etc.), produisant un effet encore plus disgracieux et d'un autre âge quand les données informatiques précédaient un signe de ponctuation simple.
 
 La lettre simple parvenait toutefois à lever toutes les ambiguïtés, à commencer par :
 
