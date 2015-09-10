@@ -4,7 +4,7 @@ Quand j'ai vu le premier SMS arriver, mercredi 12 août 2015, j'ai pensé que la
 
 J'avais été coopératif, allant jusqu'à donner ma nouvelle adresse de mon plein gré. 
 
-J'étais resté calme, mesuré, posé, réfléchi et pondéré au téléphone. L'étude d'huissier de justice a pu se rendre compte qu'elle avait affaire à une personne qui n'était pas dans la fuite, l'attaque ou la manipulation. Il n'y avait pas de mauvaise intention.
+J'étais resté calme, mesuré, posé, réfléchi et pondéré au téléphone. L'étude d'huissier de justice avait pu se rendre compte qu'elle avait affaire à une personne qui n'était pas dans la fuite, l'attaque ou la manipulation. Il n'y avait pas de mauvaise intention.
 
 Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini d'anéantir ma naïveté romantique. J'étais bien loin du compte.
 
