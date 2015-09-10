@@ -4,11 +4,11 @@ Quand j'ai vu le premier SMS de l'étude d'huissier arriver, mercredi 12 août 2
 
 J'avais été coopératif, allant jusqu'à donner ma nouvelle adresse de mon plein gré. J'étais resté calme, mesuré et pondéré au téléphone. L'étude n'avait pu que se rendre compte qu'elle avait affaire à une personne sensée, avec laquelle on pouvait avoir un dialogue constructif, qui était dans l'assertivité et non dans la fuite, l'attaque ou la manipulation. Il ne pouvait s'agir là que d'un fâcheux malentendu, il n'y avait pas mauvaise intention cachée, tout allait pouvoir redevenir comme avant, ou presque.
 
-Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini de doucher ma naïveté romantique. J'étais bien loin du compte.
+Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini d'anéantir ma naïveté romantique. J'étais bien loin du compte.
 
-Et le grand jour arriva bientôt. Samedi 15 août 2015, jour de l'Assomption, ma femme trouva le fameux courrier l'étude d'huissier dans la boîte aux lettres (certes, soyons honnêtes, nous ne la relevons pas tous les jours). L'Assomption ce n'est quand même pas rien, même si l'on ne se souvient jamais de ce que c'est (je parle pour moi, déjà).
+Finalement, le grand jour arriva. Samedi 15 août 2015, jour de l'Assomption, ma femme trouva le fameux courrier de l'étude d'huissier de justice dans la boîte aux lettres (non, nous ne la relevons pas tous les jours).
 
-Mais avant toute chose je voulais voir si je pouvais attester des SMS que j'avais reçus, pour essayer de vous prouver que je ne vous raconte pas d'histoires, notamment le caractère quelque peu tronqué des messages. Je crois que c'est ce que je peux faire de mieux, après de nombreux essais (copie d'écran à recadrée en production).
+Avant de continuer, je voulais voir si je pouvais attester des SMS que j'avais reçus, pour bien montrer que je ne raconte pas d'histoires, notamment le caractère quelque peu tronqué des messages. Je crois que c'est ce que je peux faire de mieux, après de nombreux essais (copie d'écran à recadrée en production).
 
 Capture d'écran 2015-09-07 17.23.20
 
