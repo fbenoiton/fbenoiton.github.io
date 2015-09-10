@@ -1,6 +1,6 @@
 ## Loin du compte
 
-Quand j'ai vu le premier SMS de l'étude d'huissier arriver, mercredi 12 août 2015, j'ai pensé que tout n'était pas perdu entre la Banque postale et moi. Comme j'étais en attente d'un courrier papier, je me suis dit que ce changement de programme signifiait signifiait une possible inflexion de l'autre partie.
+Quand j'ai vu le premier SMS de l'étude d'huissier arriver, mercredi 12 août 2015, j'ai pensé que tout n'était pas perdu entre la Banque postale et moi. Comme j'étais en attente d'un courrier papier, je me suis dit que ce changement de programme signifiait une possible inflexion de l'autre partie.
 
 J'avais été coopératif, allant jusqu'à donner ma nouvelle adresse de mon plein gré.
 
