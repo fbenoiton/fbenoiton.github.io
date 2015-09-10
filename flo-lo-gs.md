@@ -10,7 +10,7 @@ Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini d'anéant
 
 Finalement, le grand jour arriva. Samedi 15 août 2015, jour de l'Assomption, ma femme trouva le fameux courrier de l'étude d'huissier de justice dans la boîte aux lettres conjugale (nous ne la relevons pas tous les jours).
 
-Avant de continuer, je voulais juste voir si je pouvais montrer que je ne racontais pas d'histoires, notamment le caractère tronqué des SMS reçus (copie d'écran).
+Je voulais juste voir en passant si je pouvais montrer que je ne racontais pas d'histoires, notamment le caractère tronqué des SMS reçus (copie d'écran).
 
 Capture d'écran 2015-09-07 17.23.20
 
