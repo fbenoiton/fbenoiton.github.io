@@ -4,7 +4,7 @@ Quand j'ai vu le premier SMS de l'étude d'huissier arriver, mercredi 12 août 2
 
 J'avais été coopératif, allant jusqu'à donner ma nouvelle adresse de mon plein gré.
 
-J'étais resté calme, mesuré, posé, réfléchi et pondéré au téléphone. L'étude n'avait pu que se rendre compte qu'elle avait affaire à une personne honnête et sensée. Une personne avec laquelle on pouvait avoir un dialogue constructif, une personne qui se situait dans l'assertivité et non dans la fuite, l'attaque ou la manipulation. Il ne pouvait s'agir là que d'un fâcheux malentendu, il n'y avait pas de mauvaises intentions, tout allait pouvoir redevenir comme avant, ou presque.
+J'étais resté calme, mesuré, posé, réfléchi et pondéré au téléphone. L'étude n'avait pu que se rendre compte qu'elle avait affaire à une personne avec laquelle on pouvait avoir un dialogue constructif, une personne qui se situait dans l'assertivité et non dans la fuite, l'attaque ou la manipulation. Il ne pouvait s'agir que d'un fâcheux malentendu, il n'y avait eu aucune mauvaise intention.
 
 Bien sûr, le second SMS réceptionné une demi-heure plus tard a fini d'anéantir ma naïveté romantique. J'étais bien loin du compte.
 
