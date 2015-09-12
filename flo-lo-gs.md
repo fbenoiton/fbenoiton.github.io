@@ -1,16 +1,16 @@
 ## S01E02 1. Une page se retourne
 
-Cette fermeture de compte de la Banque postale, c'est toute une partie de ma vie qui s'achève. C'est la fin de toute une époque. Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. A l'époque, j'étais à la Banque nationale de Paris, devenue entretemps BNP Paribas, ma toute première banque, la banque de ma jeunesse.
+Cette fermeture de compte de la Banque postale, c'est toute une partie de ma vie qui s'achève. C'est la fin de toute une époque. Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. A l'époque, j'étais à la Banque nationale de Paris (BNP), devenue entretemps BNP Paribas, ma toute première banque, la banque de ma jeunesse.
 
 J'ai encore la pochette plastique transparent jaune siglée La Poste, jaunie et salie et ondulée par le temps, de l'ouverture de mon compte courant postal, comme on disait à une époque où la Banque postale n'était pas encore née. Malgré le rhume, je sens cette odeur de vieux papier s'élever du dossier que je viens de rouvrir.
 
-J'ai ouvert mon CCP, si j'en crois les documents restés en ma possession, le 10 septembre 2002, dans le bureau de poste de Fresnay-sur-Sarthe, si je me fie à ma mémoire, village du nord du département de la Sarthe dans lequel j'ai vécu de juillet 2000 à août 2013. C'était il y a tout juste 12 ans.
+J'ai ouvert mon CCP, si j'en crois les documents restés en ma possession, le 10 septembre 2002, dans le bureau de poste de Fresnay-sur-Sarthe, si je me fie à ma mémoire, village du nord du département de la Sarthe dans lequel j'ai vécu de juillet 2000 à août 2013. C'était il y a plus de 10 ans.
 
 Les PTT, le service public étatique, continuaient semble-t-il tranquillement leur mue commerciale. Je venais en fait de *"souscrire au compte Adispo 1"* auprès du Centre régional des Services financiers de la  Poste de Nantes, une formule de CCP qui me faisait d'ores et déjà *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*.
 
 Je n'ai aucun souvenir des garanties offertes par ce contrat. Dans les premiers papiers qui me tombent dans les mains, le *"certificat d'adhésion"* ne désigne ni ne décrit, même de façon allusive, de quoi il est question, invitant juste à se reporter à une *"notice d'information qui accompagne [ma] demande d'adhésion"*. Je crois surtout me souvenir n'avoir rien demandé.
 
-L'important, je pense, c'était que la cotisation d'Alliatys était *"intégrée dans la cotisation du compte Adispo"* auquel je venais de souscrire, cette même cotisation qui ne serait plus que l'une des deux sources de débits de mon compte, et me conduirait, indirectement, à me mettre à découvert, entraînant son dépassement dans la durée de jusqu'à la fermeture, fin juillet dernier.
+L'important, je pense, c'était que la cotisation d'Alliatys était *"intégrée dans la cotisation du compte Adispo"* auquel je venais de souscrire, cette même cotisation qui ne serait plus que l'une des deux sources de débits régulières de mon compte, et me conduirait, indirectement, à me mettre à découvert, entraînant son dépassement dans la durée de jusqu'à la fermeture, fin juillet dernier, après 12 reconductions automatiques *"d'année en année"*.
 
 À l'avenir, je promets de citer moins de dénominations commerciales à la con par publication sur ce blog, parce que là, je ne sais pas si vous êtes comme moi, mais j'avoue que je commence à saturer. Je commence à ne me rendre compte que maintenant des mauvaises bases sur lesquelles j'étais parti avec ma nouvelle banque, et que la façon dont cela vient de se terminer était peut-être déjà alors écrite.
 
@@ -18,9 +18,12 @@ Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire 
 
 ## S01E02 2. 
 
-***
 
-... les premiers papiers sur lesquels je tombe ... autorisation de découvert ver délicatement déposé dans le fruit de la saine gestion de ses finances personnelles ... audioposte invitation à ne pas tenir soi-même ses comptes
+## S01E02 3.
+
+retrouvé mon exemplaire du formulaire de souscription de compte ... les premiers papiers sur lesquels je tombe ... autorisation de découvert ver délicatement déposé dans le fruit de la saine gestion de ses finances personnelles ... audioposte invitation à ne pas tenir soi-même ses comptes (l'arme des relevés en général - d'ailleurs, quand sont-ils apparus ? Passage au format A4 lié ? Produit avant à la BNP)
+
+***
 
 ... ma rupture avec BP : fin d'une époque, ringard ...
 
