@@ -1,4 +1,4 @@
-## S01E02 1. Une page se retourne
+## 1. Une page se retourne
 
 Cette fermeture de compte de la Banque postale, c'est toute une partie de ma vie qui s'achève. C'est la fin de toute une époque. Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. A l'époque, j'étais à la Banque nationale de Paris (BNP), devenue entretemps BNP Paribas, ma toute première banque, la banque de ma jeunesse.
 
@@ -16,10 +16,9 @@ L'important, je pense, c'était que la cotisation d'Alliatys était *"intégrée
 
 Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire mon changemùent d'adresse, sinon d'ici quelques mois j'aurais été bon pour un nouveau dossier de surendettement.
 
-## S01E02 2. 
+## 
 
-
-## S01E02 3.
+***
 
 retrouvé mon exemplaire du formulaire de souscription de compte ... les premiers papiers sur lesquels je tombe ... autorisation de découvert ver délicatement déposé dans le fruit de la saine gestion de ses finances personnelles ... audioposte invitation à ne pas tenir soi-même ses comptes (l'arme des relevés en général - d'ailleurs, quand sont-ils apparus ? Passage au format A4 lié ? Produit avant à la BNP)
 
