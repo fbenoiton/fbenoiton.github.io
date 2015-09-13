@@ -2,7 +2,7 @@
 
 Cette fermeture de compte de la Banque postale, c'est toute une période de ma vie qui s'achève. J'ai encore la pochette plastique transparent jaune, aux couleurs de La Poste, qui m'avait été remise le jour de l'ouverture de mon CCP (compte courant postal), comme on commençait à ne plus dire à l'époque. C'était le 6 septembre 2002.
 
-Avec les années, la chemise a pris un aspect sale et ondulé. Sans doute le fait d'y avoir fourré trop de choses au fil des ans, comme des talons de chéquiers qui faisaient des bosses, et je ne peux m'empêcher d'associer au lent et long nauffrage du temps les écarts de température et l'humidité de la chambre de ma dernière demeure louée à Fresnay-sur-Sarthe de 2007 à 2012, dans laquelle elle était entreposée. J'avais fini par devoir faire de drastiques économies d'énergie, ne circonscrivant plus alors l'apparation de moisissures à la seule salle de bains.
+Avec les années, la chemise a pris un aspect sale et ondulé. Sans doute le fait d'y avoir fourré trop de choses au fil des ans, comme des talons de chéquiers qui faisaient des bosses, et je ne peux m'empêcher d'associer au lent et long nauffrage du temps les écarts de température et l'humidité de la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe, de 2007 à 2012, dans laquelle elle était entreposée. J'avais fini par devoir faire de drastiques économies d'énergie, l'apparation de moisissures n'était alors plus circonscrite à la seule salle de bains.
 
 Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. A l'époque, j'étais à la Banque nationale de Paris (BNP), devenue entretemps BNP Paribas, ma toute première banque, la banque de ma jeunesse.
 
