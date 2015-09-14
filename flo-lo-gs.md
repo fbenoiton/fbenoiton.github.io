@@ -24,13 +24,11 @@ Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire 
 
 BNP et CCP : banques de grand-père et grand-mère.
 
-Disons qu'elle va de Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. A l'époque,
-
-devenue entretemps BNP Paribas,
+Disons qu'elle va de Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. 
 
 depuis 20 ans à la retraite...
-et qui avait commencé avec le nouveau millénaire
-retrouvé mon exemplaire du formulaire de souscription de compte ... les premiers papiers sur lesquels je tombe ... autorisation de découvert ver délicatement déposé dans le fruit de la saine gestion de ses finances personnelles ... audioposte invitation à ne pas tenir soi-même ses comptes (l'arme des relevés en général - d'ailleurs, quand sont-ils apparus ? Passage au format A4 lié ? Produit avant à la BNP)
+
+... les premiers papiers sur lesquels je tombe ... autorisation de découvert ver délicatement déposé dans le fruit de la saine gestion de ses finances personnelles ... audioposte invitation à ne pas tenir soi-même ses comptes (l'arme des relevés en général - d'ailleurs, quand sont-ils apparus ? Passage au format A4 lié ? Produit avant à la BNP)
 
 ***
 
