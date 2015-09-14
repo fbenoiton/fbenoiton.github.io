@@ -1,38 +1,45 @@
-## Une page se tourne
+## Soyez assuré
 
 Cette fermeture de mon compte par la Banque postale, fin juillet 2015, c'est une grande période de ma vie qui s'achève. Avant j'étais à la Banque nationale de Paris, à Caen dans le Calvados puis à Alençon, dans l'Orne. La BNP c'était ma toute première banque, celle de ma jeunesse, de mes études, de mes premières voitures. C'était la banque de mes premiers pas dans la vie active, à la toute fin des années 1990, et de mes premiers RMI (revenu minimum d'insertion). Les affres du surendemettement ont mis fin à notre relation bancaire dans la première moitié des années 2000.
 
-J'ai encore la pochette plastique transparent jaune, aux couleurs de La Poste, qui m'avait été remise le jour de l'ouverture de mon CCP (compte chèque postal). C'était le 6 septembre 2002. Pour moi, dans mon souvenir, La Poste représente ce qui m'a permis de m'extirper des machoires d'acier du monstre qui se faisait maintenant appeler BNP Paribas, révélant finalement la vraie nature de ce qu'est une banque, à mon sens : une machine à dépouiller.
+J'ai encore la pochette plastique jaune, aux couleurs de La Poste, qui m'avait été remise à l'ouverture de mon CCP (compte chèque postal). Pour moi, dans mon souvenir, La Poste représente ce qui m'a sauvé des machoires d'acier du monstre qui se faisait maintenant appeler BNP Paribas, révélant finalement la vraie nature de ce qu'est une banque, à mon sens : une machine à dépouiller.
 
 Avec les années, la chemise a pris un aspect sale et déformé. Sans doute le fait de la laisser empilée dans un tas en y ayant fourré trop de choses au fil des ans, comme des talons de chéquiers qui faisaient des bosses. Je ne peux m'empêcher d'associer au lent et long nauffrage du temps les écarts de température et l'humidité de la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe, de 2007 à 2012. J'avais fini par devoir faire de drastiques économies d'énergie, l'apparation de moisissures n'était alors plus circonscrite à la seule salle de bains.
 
-Malgré le rhume, je sens cette odeur de vieux papier exhalée par le dossier que je viens de rouvrir. Mon compte courant a officiellement été ouvert, si j'en crois les documents du centre financier de Nantes restés en ma possession, le 10 septembre 2002. J'ai encore la copie carbone du formulaire de souscription que j'ai signé dans le bureau de poste de mon village de 2 000 habitants, le 6.
+Malgré le rhume, je sens cette odeur de vieux papier exhalée par le dossier que je viens de rouvrir. Mon compte courant a officiellement été ouvert le 10 septembre 2002, si j'en crois les documents restés en ma possession de la future Banque postale. J'ai encore la copie carbone du formulaire de souscription que j'ai signé dans le bureau de poste de mon village d'un peu plus de 2 000 habitants, le 6.
 
-Les PTT, service public étatique, continuaient semble-t-il tranquillement leur mue commerciale. Je venais en fait de *"souscrire au compte Adispo 1"* auprès du Centre régional des Services financiers de la  Poste de Nantes, une formule de CCP qui me faisait déjà le grand honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*.
+Les PTT, ancienne administration française des Postes et Télécommunications, devaient poursuivre tranquillement leur mue commerciale. Je venais en fait de *"souscrire au compte Adispo 1"* auprès du Centre régional des Services financiers de la  Poste de Nantes, une formule de CCP qui me faisait déjà le grand honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*.
 
-Je n'ai aucun souvenir des garanties offertes par ce contrat. Dans les premiers papiers qui me tombent dans les mains, le *"certificat d'adhésion"* ne désigne ni ne décrit, même de façon allusive, de quoi il est question, invitant juste à se reporter à une *"notice d'information qui accompagne [ma] demande d'adhésion"*. Je crois surtout me souvenir n'avoir rien demandé.
+Je n'ai aucun souvenir des garanties offertes par ce contrat à la douce dénomination commerciale vide de sens. Dans les premiers papiers qui me tombent dans les mains, le *"certificat d'adhésion"* ne désigne ni ne décrit, même de façon allusive, de quoi il est question, invitant juste à se reporter à une *"notice d'information qui accompagne la demande d'adhésion"*. Je crois surtout que je n'avais rien demandé.
 
-L'important, je pense, c'était que la cotisation d'Alliatys était *"intégrée dans la cotisation du compte Adispo"* auquel je venais de souscrire, cette même cotisation qui ne serait plus que l'une des deux sources de débits régulières de mon compte, et me conduirait, indirectement, à me mettre à découvert, entraînant son dépassement dans la durée de jusqu'à la fermeture, fin juillet dernier, après 12 reconductions automatiques *"d'année en année"*.
-
-À l'avenir, je promets de citer moins de dénominations commerciales à la con par publication sur ce blog, parce que là, je ne sais pas si vous êtes comme moi, mais j'avoue que je commence à saturer. Je commence à ne me rendre compte que maintenant des mauvaises bases sur lesquelles j'étais parti avec ma nouvelle banque, et que la façon dont cela vient de se terminer était peut-être déjà alors écrite.
-
-Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire mon changemùent d'adresse, sinon d'ici quelques mois j'aurais été bon pour un nouveau dossier de surendettement.
-
-## 
+L'important, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"* dont je me retrouvais affublé. Cette même cotisation qui finirait par me mettre à découvert dans les derniers mois, jusqu'à la fermeture cet été,  après 12 reconductions automatiques *"d'année en année"*.
 
 ***
 
-BNP et CCP : banques de grand-père et grand-mère.
+Ce n'est n'est qu'en écrivant ces lignes que je commence à ne me rendre compte que maintenant des mauvaises bases sur lesquelles j'étais parti avec ma nouvelle banque, et que la façon dont cela vient de se terminer était peut-être déjà alors écrite.
+
+Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire mon changement d'adresse, sinon d'ici quelques mois j'aurais été bon pour un nouveau dossier de surendettement.
+
+dénominations commerciales à la con
+sentait mauvais dès le début
+finir par ne plus répondre au téléphone : tous ces démarchages pour une carte plus chère, etc. Pourquoi pas fait les démarches en temps et heure (adresse, compte joint) ? Inconsciemment nous serions la proie de nouvelles agressions commerciales à la faveur du changement de situation ? Mon intuition.
+
+en fait qu'est-ce qui a amené à la fermeture : découvert, adresse, les deux, ou l'un révélant indirectement l'autre ? connais pas en fait la raison.
+
+***
+
+BNP et CCP, j'ai eu deux banques dans ma vie : banques de grand-père et grand-mère. images positives. d'un certain niveau de vie.
 
 Disons qu'elle va de Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. 
 
-depuis 20 ans à la retraite...
+- depuis 20 ans à la retraite...
+- chèque prud'hommes (aussi dans cette grande période de ma vie)
 
 ... les premiers papiers sur lesquels je tombe ... autorisation de découvert ver délicatement déposé dans le fruit de la saine gestion de ses finances personnelles ... audioposte invitation à ne pas tenir soi-même ses comptes (l'arme des relevés en général - d'ailleurs, quand sont-ils apparus ? Passage au format A4 lié ? Produit avant à la BNP)
 
 ***
 
-... ma rupture avec BP : fin d'une époque, ringard ...
+... ma rupture avec BP : pas mécontent fin d'une époque, ouvre une ère nouvelles, ringard ...
 
 (solde resté négatif)En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
 
