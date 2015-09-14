@@ -14,13 +14,18 @@ Je n'ai aucun souvenir des garanties offertes par ce contrat à la douce dénomi
 
 L'important, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"* dont je me retrouvais affublé. Cette même cotisation qui finirait par me mettre à découvert dans les derniers mois, jusqu'à la fermeture cet été,  après 12 reconductions automatiques *"d'année en année"*.
 
+## 
+
+Drôle de situation conjugale sans compte en banque.
+
 ***
 
+Sorti des griffes pour tomber dans la gueule du loup de la banque et de la finance.
 Ce n'est n'est qu'en écrivant ces lignes que je commence à ne me rendre compte que maintenant des mauvaises bases sur lesquelles j'étais parti avec ma nouvelle banque, et que la façon dont cela vient de se terminer était peut-être déjà alors écrite.
 
 Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire mon changement d'adresse, sinon d'ici quelques mois j'aurais été bon pour un nouveau dossier de surendettement.
 
-dénominations commerciales à la con
+dénominations commerciales à la con (il ne me viendrait pas à l'idée de regarder TF1...)
 sentait mauvais dès le début
 finir par ne plus répondre au téléphone : tous ces démarchages pour une carte plus chère, etc. Pourquoi pas fait les démarches en temps et heure (adresse, compte joint) ? Inconsciemment nous serions la proie de nouvelles agressions commerciales à la faveur du changement de situation ? Mon intuition.
 
@@ -32,6 +37,7 @@ BNP et CCP, j'ai eu deux banques dans ma vie : banques de grand-père et grand-m
 
 Disons qu'elle va de Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. 
 
+images que je garderai du bureau de poste de fresnay-sur-sarthe
 - depuis 20 ans à la retraite...
 - chèque prud'hommes (aussi dans cette grande période de ma vie)
 
