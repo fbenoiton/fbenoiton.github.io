@@ -4,17 +4,17 @@ J'ai encore la pochette plastique jaune, aux couleurs de La Poste, qui m'avait �
 
 Avec les années, elle a pris un aspect sale et déformé.
 
-J'imagine que j'ai laissé la chemise transparente trop longtemps empilée dans un tas en y fourrant trop de choses au fil des ans, comme quelques talons de chéquiers qui faisaient des bosses. Je ne peux aussi m'empêcher d'associer au lent et long nauffrage du temps les écarts de température et l'humidité régnant dans la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe, dans la Sarthe, de 2007 à 2012. J'avais fini par devoir faire d'énergiques économies d'énergie, l'apparition de moisissures ne se limitant alors plus à la seule salle de bains.
+J'imagine que j'ai laissé la chemise transparente trop longtemps empilée tout en y fourrant trop de choses au fil des ans, comme quelques talons de chéquiers qui faisaient des bosses. Je ne peux aussi m'empêcher d'associer au lent et long nauffrage du temps les écarts de température et l'humidité régnant dans la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe, dans la Sarthe, de 2007 à 2012. J'avais fini par devoir faire d'énergiques économies d'énergie, l'apparition de moisissures ne se limitant alors plus à la seule salle de bains.
 
-Malgré le rhume de cette fin d'été 2015, je sens cette odeur de vieux papier exhalée par le dossier que je viens de rouvrir. Mon compte courant a officiellement été ouvert le 10 septembre 2002, si j'en crois les premiers documents sur lesquels je tombe. J'ai encore, tout à la fin, la copie carbone du formulaire de souscription que j'ai signé dans le bureau de poste du village d'un peu plus de 2 000 habitants, quelques jours plus tôt.
+Malgré le rhume de cette fin d'été 2015, je sens cette odeur de vieux papier exhalée par le dossier que je viens de rouvrir. Le compte courant a officiellement été ouvert le 10 septembre 2002, si j'en crois les premiers documents sur lesquels je tombe. J'ai encore, tout à la fin, la copie carbone du formulaire de souscription que j'ai signé dans le bureau de poste du village d'un peu plus de 2 000 habitants, quelques jours plus tôt.
 
-Dans les plis de ma mémoire, La Poste était restée ce qui m'avait permis de m'échapper des machoires d'acier de BNP Paribas, grâce au montage d'un dossier de surendettement. En retrouvant également des archives relatives à mon passage en commission, mes souvenirs semblent, par souci de simplification, avoir pris quelques libertés avec les faits en empruntant des raccourcis. Mais j'ai dû rester pendant tout ce temps imprégné de la promesse d'une banque moins agressive et dénuée de scrupules dans la relation avec ses clients.
+Dans les plis de ma mémoire, La Poste m'avait permis de m'échapper des machoires d'acier de BNP Paribas, grâce au montage d'un dossier de surendettement. En retrouvant également des archives relatives à mon passage en commission, mes souvenirs semblent, par souci de simplification, avoir emprunté quelques raccourcis. Mais je crois que j'étaits resté pendant tout ce temps imprégné de la promesse d'une banque moins agressive et dénuée de scrupules dans la relation avec ses clients.
 
-Je venais en fait, ce fameux 6 septembre 2015, de *"souscrire au compte Adispo 1"* auprès du Centre régional des Services financiers de la  Poste de Nantes, une formule de CCP qui me faisait déjà le grand honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*. Je n'ai aucune idée des garanties offertes par ce contrat.
+Je venais en fait, ce fameux 6 septembre 2002, de *"souscrire au compte Adispo 1"* auprès du Centre régional des Services financiers de la  Poste de Nantes, une formule de CCP qui me faisait le grand honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*. Dans mes mains, le *"certificat d'adhésion"* ne dit mot sur ce dont il retourne, reportant juste à une certaine *"notice d'information qui accompagne la demande"*.
 
-Dans mes mains, le *"certificat d'adhésion"* ne désigne ni ne décrit, même de façon allusive, de quoi il est question, invitant juste à se reporter à une *"notice d'information qui accompagne la demande"*. Je crois surtout que je n'avais rien demandé.
+Ce dont je crois me souvenir, par contre, c'est que je n'avais rien demandé, et que les choses étaient présentées, par le conseiller financier de l'ancienne administration française des Postes et Télécommunications, comme s'il n'y avait pas d'autre choix.
 
-L'important, faut-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, cette même cotisation finirait par me mettre à découvert, jusqu'à la fermeture de mon compte par la banque.
+L'important, fallait-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, ce même prélèvement contribuerait à me mettre à découvert, jusqu'à la fermeture.
 
 ***
 
@@ -29,7 +29,7 @@ Ce n'est n'est qu'en écrivant ces lignes que je commence à ne me rendre compte
 
 Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire mon changement d'adresse, sinon d'ici quelques mois j'aurais été bon pour un nouveau dossier de surendettement.
 
-Les PTT, ancienne administration française des Postes et Télécommunications, devaient poursuivre tranquillement leur mue commerciale. 
+Les PTT, devaient poursuivre tranquillement leur mue commerciale. 
 
 dénominations commerciales à la con (il ne me viendrait pas à l'idée de regarder TF1...)
 sentait mauvais dès le début à la douce dénomination commerciale vide de sens
