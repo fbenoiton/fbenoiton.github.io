@@ -12,7 +12,7 @@ Je venais en fait de *"souscrire au compte Adispo 1"*, qui me faisait l'honneur 
 
 Je crois me souvenir que je n'en demandais pas tant. Mais la présentation du conseiller financier de l'ancienne administration française des Postes et Télécommunications, qui a eu l'amabilité de remplir le formulaire de bout en bout, ne laissait pas penser qu'il pouvait y avoir d'autre choix.
 
-L'important, fallait-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, ce même prélèvement contribuerait à me mettre à découvert, jusqu'à la fermeture, fin juillet 2015.
+L'important, fallait-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, ce même prélèvement contribuerait grandement à ce que je me retrouve à découvert, jusqu'à la fermeture, fin juillet 2015.
 
 ***
 
