@@ -1,10 +1,8 @@
 ## Soyez assuré
 
-J'ai encore la pochette plastique jaune, aux couleurs de La Poste, qui m'avait été remise à l'ouverture de mon nouveau compte bancaire.
+J'ai encore la pochette plastique jaune et transparente, aux couleurs de La Poste, qui m'avait été remise à l'ouverture de mon nouveau compte chèque. Avec les années, elle a pris un aspect sale et déformé ; une impression en partie donnée par le contenu qui a lui-même subi les outrages du temps, pour être juste.
 
-Avec les années, elle a pris un aspect sale et déformé.
-
-J'imagine que j'ai laissé la chemise transparente trop longtemps dans une pile de papier après y avoir fourré trop de choses, comme quelques talons de chéquiers qui faisaient des bosses, puis m'en être désintéressé. Je ne peux aussi m'empêcher d'associer au lent et long naufrage les écarts de température et l'humidité régnant dans la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe (Sarthe), de 2007 à 2012. J'avais fini par devoir faire d'énergiques économies d'énergie l'hiver.
+J'ai laissé la chemise dans une pile après y avoir fourré trop de choses, comme quelques talons de chéquiers qui faisaient des bosses, puis m'en être désintéressé. Je ne peux aussi m'empêcher d'associer au lent et long naufrage les écarts de température et l'humidité régnant dans la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe (Sarthe), de 2007 à 2012. J'avais fini par devoir faire d'énergiques économies d'énergie l'hiver.
 
 Malgré le rhume de cette fin d'été 2015, je sens cette odeur de vieux papier exhalée par le dossier que je viens de rouvrir. Le compte courant a officiellement été ouvert le 10 septembre 2002, si j'en crois les premiers documents sur lesquels je tombe. J'ai encore, tout à la fin, la copie carbone du formulaire de demande d'ouverture que j'ai signé dans le bureau de poste du village d'un peu plus de 2 000 habitants, quelques jours plus tôt.
 
