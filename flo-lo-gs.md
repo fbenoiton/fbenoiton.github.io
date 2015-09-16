@@ -1,10 +1,8 @@
 ## Soyez assuré
 
-J'ai encore la pochette plastique jaune et transparente, aux couleurs de La Poste, qui m'avait été remise à l'ouverture de mon nouveau compte chèque. Avec les années, elle a pris un aspect sale et déformé ; une impression renforcée par le contenu qui a lui-même subi les outrages du temps, pour être juste.
+J'ai encore la pochette plastique jaune et transparente, aux couleurs de La Poste, qui m'avait été remise à l'ouverture de mon nouveau compte chèque. Avec les années, elle a pris un aspect sale et déformé ; une impression renforcée par le contenu qu'elle laisse entrevoir, pour être juste.
 
-J'ai dû commencer par y fourrer trop de choses, comme quelques talons de chéquiers qui faisaient des bosses, avant de m'en désintéresser pour de bon. Je pense aussi aux écarts de température et l'humidité régnant dans la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe (Sarthe), de 2007 à 2012. Je revois la pochette entreposée dans un renfoncement aménagé dans le mur, qui commençait à être lui aussi gagné par les moisissures. J'avais fini par devoir faire d'énergiques économies d'énergie, l'hiver.
-
-les  régnant dans la chambre de  
+J'ai dû y fourrer trop de choses, comme quelques talons de chéquiers qui faisaient des bosses, avant de m'en désintéresser complètement. Me viennent à l'esprit les écarts de température et l'humidité régnant dans la chambre de ma troisième et dernière demeure louée à Fresnay-sur-Sarthe (Sarthe), de 2007 à 2012. Je revois la pochette entreposée dans un renfoncement aménagé dans le mur, qui commençait à être lui aussi gagné par les moisissures. J'avais fini par devoir faire d'énergiques économies d'énergie, l'hiver.
 
 Malgré le rhume de cette fin d'été 2015, je sens cette odeur de vieux papier exhalée par le dossier que je viens de rouvrir. Le compte courant a officiellement été ouvert le 10 septembre 2002, si j'en crois les premiers documents sur lesquels je tombe. J'ai encore, tout à la fin, la copie carbone du formulaire de demande d'ouverture que j'ai signé dans le bureau de poste du village d'un peu plus de 2 000 habitants, quelques jours plus tôt.
 
