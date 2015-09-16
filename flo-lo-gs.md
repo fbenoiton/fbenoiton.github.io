@@ -8,9 +8,9 @@ Malgré le rhume de cette fin d'été 2015, je sens cette odeur de vieux papier 
 
 Dans les plis de ma mémoire, La Poste m'avait permis de m'échapper des machoires d'acier de ma première banque, BNP Paribas, de façon concomitante au montage d'un dossier de surendettement. En retrouvant également des archives relatives à mon passage en commission, mes souvenirs semblent avoir emprunté quelque raccourci. Mais je pense être resté pendant tout le temps que la relation bancaire a duré, imprégné de la promesse d'une banque de service public à la politique commerciale moins dénuée de scrupules.
 
-Je venais en fait de *"souscrire au compte Adispo 1"*, qui me faisait l'honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*. Dans mes mains, le *"certificat d'adhésion"* dudit contrat ne dit mot sur ce dont il retourne, invitant juste à se reporter à une certaine *"notice d'information qui accompagne la demande"*.
+Je venais en fait de *"souscrire au compte Adispo 1"*, qui me faisait l'honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*. Dans mes mains, le *"certificat d'adhésion"* dudit contrat ne dit mot sur ce dont il retourne, invitant juste à se reporter à la *"notice d'information qui accompagne la demande"*.
 
-Je crois me souvenir que je n'en demandais pas autant. Mais la présentation du conseiller financier de l'ancienne administration française des Postes et Télécommunications, qui a eu l'amabilité de remplir le formulaire de bout en bout, ne laissait pas penser qu'il pouvait y avoir d'autre choix.
+Je crois me souvenir que je n'en demandais pas tant. Mais la présentation du conseiller financier de l'ancienne administration française des Postes et Télécommunications, qui a eu l'amabilité de remplir le formulaire de bout en bout, ne laissait pas penser qu'il pouvait y avoir d'autre choix.
 
 L'important, fallait-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, ce même prélèvement contribuerait à me mettre à découvert, jusqu'à la fermeture, fin juillet 2015.
 
