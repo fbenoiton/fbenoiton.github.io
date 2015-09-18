@@ -1,18 +1,18 @@
 ## Soyez assuré
 
-J'ai encore la pochette plastique, aux couleurs de La Poste, remise à l'ouverture de mon nouveau compte chèque. Avec les années, elle a pris un aspect sale et déformé, laissant entrevoir par transparence les courriers jaunis par le temps.
+J'ai encore la pochette plastique, aux couleurs de La Poste, remise à l'ouverture de mon  compte chèque. Elle a pris un aspect sale et déformé avec les ans, laissant entrevoir par transparence des courriers jaunis par le temps.
 
-J'ai dû y fourrer trop de choses, comme quelques talons de chéquiers qui faisaient des bosses, avant de m'en désintéresser complètement. Me viennent aussi à l'esprit les écarts de température et l'humidité régnant dans la chambre de ma dernière demeure louée à Fresnay-sur-Sarthe (Sarthe), de 2007 à 2012. Je revois la pochette entreposée dans un renfoncement aménagé dans le mur épais, gagné par les moisissures. J'avais fini par devoir faire d'énergiques économies d'énergie, l'hiver.
+J'ai dû finir par y fourrer trop de choses, comme des talons de chéquiers qui faisaient des bosses, avant de m'en désintéresser complètement. Me viennent aussi à l'esprit les écarts de température et l'humidité régnant dans la chambre de ma dernière demeure louée à Fresnay-sur-Sarthe (Sarthe), de 2007 à 2012. Je revois la pochette posée dans un renfoncement aménagé dans le mur épais et gagné par les moisissures. J'avais fini par devoir faire d'énergiques économies d'énergie, l'hiver.
 
 Malgré le rhume de cette fin d'été 2015, je sens l'odeur du vieux papier exhalée par le dossier que je viens de rouvrir. Le compte courant a officiellement été ouvert le 10 septembre 2002, si j'en crois les premiers documents sur lesquels je tombe. Je retrouve la copie carbone du formulaire de demande d'ouverture que j'ai signé dans le bureau de poste de mon village d'un peu plus de 2 000 habitants, quelques jours plus tôt.
 
-Dans les plis de ma mémoire, La Poste m'avait permis de m'échapper des machoires d'acier de BNP Paribas, ma première banque, de façon concomitante au montage de mon dossier de surendettement. En remettant également la main sur des archives relatives à mon passage en commission, mes souvenirs semblent avoir emprunté quelque raccourci. Mais je pense être resté jusqu'à la fin imprégné de la promesse d'une banque de service public à la politique commerciale moins dénuée de scrupules.
+Dans les plis de ma mémoire, La Poste m'avait permis de m'échapper des machoires d'acier de BNP Paribas, ma première banque, de façon concomitante au montage de mon dossier de surendettement. En remettant également la main sur les archives de mon passage en commission, mes souvenirs semblent avoir emprunté quelque raccourci. Mais je pense être resté imprégné de la promesse d'une banque de service public à la politique commerciale moins dénuée de scrupules, jusqu'à ce qu'il soit trop tard.
 
 Je venais en fait de *"souscrire au compte Adispo 1"*, qui me faisait l'honneur de *"bénéficie[r] des garanties du contrat d'assurance Alliatys"*. Dans mes mains, le *"certificat d'adhésion"* dudit contrat ne dit mot sur ce dont il retourne, invitant juste à se reporter à la *"notice d'information qui accompagne la demande"*.
 
-Je crois me souvenir que je n'en demandais pas tant. Mais la présentation du conseiller financier de l'ancienne administration française des Postes et Télécommunications, qui a rempli le formulaire de bout en bout, ne laissait entrevoir le moindre choix.
+Je crois me souvenir que je n'en demandais pas tant. Mais, le conseiller financier de l'ancienne administration française des Postes et Télécommunications, qui a rempli le formulaire de bout en bout, ne m'a pas laissé entrevoir le moindre choix.
 
-L'important, fallait-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, ce prélèvement contribuerait grandement à ce que je me retrouve à découvert, jusqu'à la fermeture, fin juillet 2015.
+L'important, fallait-il croire, c'était que la somme à débourser pour Alliatys était *"intégrée dans la cotisation du compte Adispo"*. Douze reconductions automatiques *"d'année en année"* plus tard, ce prélèvement apporterait sa pierre à mon découvert, jusqu'à la sèche fermeture, fin juillet 2015.
 
 ***
 
