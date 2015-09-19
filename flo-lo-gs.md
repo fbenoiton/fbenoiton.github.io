@@ -1,10 +1,12 @@
-## 
+## Bonjour l'embrouille
 
-***
+À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde ce fameux 6 septembre 2002.
 
-Drôle de situation conjugale sans compte en banque.
+J'ai mené ma petite enquête.
 
-Cette fermeture de mon compte par la Banque postale, fin juillet 2015, c'est toute une période de ma vie qui s'achève. 
+À l'époque j'allais sur mes 31 ans. 
+
+Dans l'actualité internationale ...
 
 ***
 
@@ -19,7 +21,7 @@ dénominations commerciales à la con (il ne me viendrait pas à l'idée de rega
 sentait mauvais dès le début à la douce dénomination commerciale vide de sens
 finir par ne plus répondre au téléphone : tous ces démarchages pour une carte plus chère, etc. Pourquoi pas fait les démarches en temps et heure (adresse, compte joint) ? Inconsciemment nous serions la proie de nouvelles agressions commerciales à la faveur du changement de situation ? Mon intuition.
 
-en fait qu'est-ce qui a amené à la fermeture : découvert, adresse, les deux, ou l'un révélant indirectement l'autre ? connais pas en fait la raison.
+En fait qu'est-ce qui a amené à la fermeture : découvert, adresse, les deux, ou l'un révélant indirectement l'autre ? connais pas en fait la raison.
 
 ***
 
