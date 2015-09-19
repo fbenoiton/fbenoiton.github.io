@@ -1,4 +1,4 @@
-## Au diable les Journées mondiales
+## Au diable les journées mondiales
 
 À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde ce fameux 6 septembre 2002.
 
@@ -14,9 +14,7 @@ Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de 
 
 En France, si l'on en croit Google, le 6 septembre 2002 reste fortement associé à un arrêt de la cour de cassation qui a donc fait date, et relatif à, vous savez, ces fameuses loteries où l'on apprend par un courrier alléchant que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La cour parviendra semble-t-il à mettre fin à cette mode en demandant tout simplement aux sociétés indélicates les sommes qu'elle promettent faussement.
 
-Sur notre continent, l'année 2002 restera celle du fameux passage à l'euro ...
-
-[1]: 
+[1]
 
 Dans l'actualité internationale ...
 
@@ -25,6 +23,10 @@ Dans l'actualité internationale ...
 Si un jour les Nations unies décide un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, les arnaques et embrouilles à l'encontre de son prochain en tout genre, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
 [3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
+
+En tout cas, sur notre continent, l'année 2002 restera celle du fameux passage à l'euro ...
+
+[4]: 
 
 ***
 
