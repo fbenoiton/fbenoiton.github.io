@@ -4,7 +4,13 @@
 
 J'ai mené ma petite enquête.
 
-À l'époque j'allais sur mes 31 ans. 
+C'était un vendredi. J'allais sur mes 31 ans. Selon toute vraisemblance, sans travail, j'étais bénéficiaire du revenu minimum d'insertion (le fameux RMI, et ce n'était pas la première fois que ça m'arrivait).
+
+Ma dernière expérience professionnelle remontait au mois d'avril, dans un centre d'appels basé au Mans (Sarthe), lequel avait décidé de se passer de mes services à l'issue de la période d'essai (du moins c'est ce que l'entreprise croyais, je n'avais pas encore retourné le contrat de travail que j'étais censé signer).
+
+Un mois plus tard, je devais partir en formation de développeur de sites Web, à Alençon (Orne), qui ne me mènerait pas davantage à l'emploi et de laquelle je ressortirais lessivé, 11 mois plus tard, malgré avoir réussi, certes inintentionnellement, à passer l'été à bronzer sur la plage du lac de Sillé-le-Guillaume (Sarthe).
+
+Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé-le-Guillaume que je me remettre sur les rails (il y avait encore une gare, d'ailleurs, dans cette commune de taille comparable à Fresnay-sur-Sarthe, et qui l'emportera donc logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale).
 
 Dans l'actualité internationale ...
 
