@@ -1,4 +1,4 @@
-## Bonjour l'embrouille
+## Au diable les Journées mondiales
 
 À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde ce fameux 6 septembre 2002.
 
