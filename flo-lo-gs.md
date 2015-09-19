@@ -12,7 +12,19 @@ Un mois plus tard, je devais partir en formation de développeur de sites Web, �
 
 Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé-le-Guillaume que je me remettre sur les rails (il y avait encore une gare, d'ailleurs, dans cette commune de taille comparable à Fresnay-sur-Sarthe, et qui l'emportera donc logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale).
 
+En France, si l'on en croit Google, le 6 septembre 2002 reste fortement associé à un arrêt de la cour de cassation qui a donc fait date, et relatif à, vous savez, ces fameuses loteries où l'on apprend par un courrier alléchant que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La cour parviendra semble-t-il à mettre fin à cette mode en demandant tout simplement aux sociétés indélicates les sommes qu'elle promettent faussement.
+
+Sur notre continent, l'année 2002 restera celle du fameux passage à l'euro ...
+
+[1]: 
+
 Dans l'actualité internationale ...
+
+[2]: 
+
+Si un jour les Nations unies décide un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, les arnaques et embrouilles à l'encontre de son prochain en tout genre, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
+
+[3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
 ***
 
