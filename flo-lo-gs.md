@@ -8,23 +8,27 @@ C'était un vendredi. J'allais sur mes 31 ans. Selon toute vraisemblance, sans t
 
 Ma dernière expérience professionnelle remontait au mois d'avril, dans un centre d'appels basé au Mans (Sarthe), lequel avait décidé de se passer de mes services à l'issue de la période d'essai (du moins c'est ce que l'entreprise croyais, je n'avais pas encore retourné le contrat de travail que j'étais censé signer).
 
-Un mois plus tard, je devais partir en formation de développeur de sites Web, à Alençon (Orne), qui ne me mènerait pas davantage à l'emploi et de laquelle je ressortirais lessivé, 11 mois plus tard, malgré avoir réussi, certes inintentionnellement, à passer l'été à bronzer sur la plage du lac de Sillé-le-Guillaume (Sarthe).
+Je crois que la vraie raison de mon renvoi, c'était que j'avais découvert le pot aux roses et commençais à semer le doute auprès de mes camarades frais émoulus comme moi : on nous faisait croire que nous avions affaire au téléphone à de vrais clients, alors que nous étions encore en formation.
 
-Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé-le-Guillaume que je me remettre sur les rails (il y avait encore une gare, d'ailleurs, dans cette commune de taille comparable à Fresnay-sur-Sarthe, et qui l'emportera donc logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale).
+Un mois plus tard, je devais partir apprendre le métier de développeur de sites Web à Alençon (Orne). Onze mois plus tard, la formation professionnelle ne me mènerait pas davantage à l'emploi. En fait j'en suis ressorti lessivé malgré avoir réussi, certes inintentionnellement, à passer l'été à bronzer au lac de Sillé-le-Guillaume (Sarthe).
 
-En France, si l'on en croit Google, le 6 septembre 2002 reste fortement associé à un arrêt de la cour de cassation qui a donc fait date, et relatif à, vous savez, ces fameuses loteries où l'on apprend par un courrier alléchant que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La cour parviendra semble-t-il à mettre fin à cette mode en demandant tout simplement aux sociétés indélicates les sommes qu'elle promettent faussement.
+Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que je me remettre sur les rails (il y avait encore une gare, d'ailleurs, dans cette commune de taille comparable à Fresnay-sur-Sarthe, et qui l'emportera donc logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale).
 
-[1]
+En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la cour de cassation qui a donc fait date, et relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par un courrier alléchant que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La cour parviendra semble-t-il à mettre fin à cette pratique en demandant tout simplement aux sociétés indélicates de verser les sommes faussement promises.
 
-Dans l'actualité internationale ...
+Dans l'actualité internationale, pas grand-chose non plus se mettre sous la dent, donc. La page de Wikipédia consacrée au mois de [septembre 2002][1] rapporte, pour la journée du 6, cet unique fait :
 
-[2]: 
+> Grâce à des photos satellites, de nouvelles infrastructures auraient été détectées sur un ancien site nucléaire en Irak, selon un expert de l'AIEA. Le 7, le président George W. Bush et le premier ministre britannique Tony Blair, réunis à Camp David, estime que c'est une preuve de "menace réelle".
+
+[1]: https://fr.wikipedia.org/wiki/Septembre_2002
+
+J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre de l'entreé en guerre abusive et mensongère contre contre l'Irak. suite aux attentats du 11-Septembre.
 
 Si un jour les Nations unies décide un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, les arnaques et embrouilles à l'encontre de son prochain en tout genre, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
 [3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-En tout cas, sur notre continent, l'année 2002 restera celle du fameux passage à l'euro ...
+Enfin, sur notre continent, n'oublions pas que l'année 2002 reste celle du fameux passage à l'euro ...
 
 [4]: 
 
