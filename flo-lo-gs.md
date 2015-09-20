@@ -1,4 +1,4 @@
-## Au diable les journées mondiales
+## Sous le signe de l'arnaque
 
 À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde ce fameux 6 septembre 2002.
 
@@ -22,7 +22,7 @@ Dans l'actualité internationale, pas grand-chose non plus se mettre sous la den
 
 [1]: https://fr.wikipedia.org/wiki/Septembre_2002
 
-J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre de l'entreé en guerre abusive et mensongère contre contre l'Irak. suite aux attentats du 11-Septembre.
+J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre ralliement absusif et mensonger du monde dans l'entrée en guerre contre contre l'Irak.
 
 Si un jour les Nations unies décide un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, les arnaques et embrouilles à l'encontre de son prochain en tout genre, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
