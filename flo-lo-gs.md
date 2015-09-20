@@ -1,6 +1,6 @@
 ## Sous le signe de l'embrouille
 
-À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde ce fameux 6 septembre 2002.
+À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde, ce fameux 6 septembre 2002.
 
 J'ai mené ma petite enquête.
 
@@ -24,9 +24,9 @@ Dans l'actualité internationale, pas grand-chose non plus se mettre sous la den
 
 J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'Amérique dans le ralliement, sur des bases possiblement mensongères, d'autres parties du monde pour envahir l'Irak, l'année suivante, et ainsi obtenir un changement de régime.
 
-Si les Nations Unies veulent un jour instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, tromperie, duperie et autres abus à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
+Si les Nations Unies veulent un jour instaurer une [Journée mondiale][2] de lutte contre toutes les formes de tricherie, tromperie, duperie et autres abus à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
-[3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
+[2]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
 Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro, qui, en tout début d'année, restera peut-être l'arnaque du millénaire, d'aucuns considérant que la mise en circulation fiduciaire de la monnaie unique européenne n'a servi qu'à masquer une phénoménale dégingrolade du pouvoir d'achat des citoyens français, le franc, ancienne devise nationale, héritant d'un taux de conversion improbable. 
 
