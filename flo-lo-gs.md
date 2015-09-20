@@ -28,7 +28,7 @@ Si les Nations Unies veulent un jour instaurer une [Journée mondiale][2] de lut
 
 [2]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro, qui, en tout début d'année, restera peut-être le casse du millénaire, d'aucuns considérant que la mise en circulation fiduciaire de la monnaie unique européenne n'a servi qu'à masquer une phénoménale dégingrolade du pouvoir d'achat des citoyens français, le franc, ancienne devise nationale, héritant d'un taux de conversion improbable. 
+Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro. Un grand nombe de citoyens français considére que la mise en circulation fiduciaire de la monnaie unique européenne a masqué une phénoménale dégingrolade du pouvoir d'achat par augmentation des prix, le franc, ancienne devise nationale, héritant d'un taux de conversion improbable. 
 
 ***
 
