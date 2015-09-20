@@ -24,11 +24,11 @@ Dans l'actualité internationale, pas grand-chose non plus se mettre sous la den
 
 J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre ralliement absusif et mensonger du monde dans l'entrée en guerre contre l'Irak.
 
-Si un jour les Nations unies décide un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, les arnaques et embrouilles à l'encontre de son prochain en tout genre, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
+Si les Nations unies se décident un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, arnaques et autres embrouilles à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
 [3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-Enfin, sur notre continent, n'oublions pas que l'année 2002 reste celle du fameux passage à l'euro ...
+Enfin, sur notre continent, n'oublions pas que l'année 2002 reste celle du phénoménal passage à l'euro ...
 
 [4]: 
 
