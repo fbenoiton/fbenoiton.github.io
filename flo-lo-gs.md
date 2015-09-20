@@ -22,13 +22,13 @@ Dans l'actualité internationale, pas grand-chose non plus se mettre sous la den
 
 [1]: https://fr.wikipedia.org/wiki/Septembre_2002
 
-J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre ralliement absusif et mensonger du monde dans l'entrée en guerre contre l'Irak.
+J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'Amérique dans le ralliement, possiblement mensonger, d'autres parties du monde pour envahir l'Irak, l'année suivante, et obtenir un changement de régime.
 
-Si les Nations unies se décident un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, arnaques et autres embrouilles à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
+Si les Nations Unies veulent un jour instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, tromperie, duperie et autres abus à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
 [3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-Enfin, sur notre continent, n'oublions pas que l'année 2002 reste celle du phénoménal passage à l'euro ...
+Enfin, sur notre continent, n'oublions pas que l'année 2002 est celle du phénoménal passage à l'euro, qui restera peut-être le hold-up du millénaire, d'aucuns considérant que la mise en oeuvre fiduciaire de la monnaie unique européenne n'avait servi qu'à masquer une magistrale dégingrolade du pouvoir d'achat des populations.
 
 [4]: 
 
