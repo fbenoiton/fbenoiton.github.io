@@ -28,9 +28,7 @@ Si les Nations Unies veulent un jour instaurer une [Journée mondiale][3] de lut
 
 [3]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-Enfin, n'oublions pas que l'année 2002 est celle du phénoménal passage à l'euro, qui, en tout début d'année, restera peut-être le hold-up du millénaire, d'aucuns considérant que la mise en oeuvre fiduciaire de la monnaie unique européenne n'ait servi qu'à masquer une magistrale dégingrolade du pouvoir d'achat des populations.
-
-[4]: 
+Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro, qui, en tout début d'année, restera peut-être l'arnaque du millénaire, d'aucuns considérant que la mise en circulation fiduciaire de la monnaie unique européenne n'a servi qu'à masquer une phénoménale dégingrolade du pouvoir d'achat des citoyens français, le franc, ancienne devise nationale, héritant d'un taux de conversion improbable. 
 
 ***
 
