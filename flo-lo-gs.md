@@ -22,7 +22,7 @@ Dans l'actualité internationale, pas grand-chose non plus se mettre sous la den
 
 [1]: https://fr.wikipedia.org/wiki/Septembre_2002
 
-J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre ralliement absusif et mensonger du monde dans l'entrée en guerre contre contre l'Irak.
+J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'oncle américain dans la sombre ralliement absusif et mensonger du monde dans l'entrée en guerre contre l'Irak.
 
 Si un jour les Nations unies décide un jour d'instaurer une [Journée mondiale][3] de lutte contre toutes les formes de tricherie, les arnaques et embrouilles à l'encontre de son prochain en tout genre, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
