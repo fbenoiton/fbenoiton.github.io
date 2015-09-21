@@ -1,18 +1,18 @@
 ## Sous le signe de l'arnaque
 
-À part mon ouverture de compte courant auprès de ce qui allait devenir, quelque années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde, ce fameux 6 septembre 2002.
+Jour de l'ouverture de mon compte courant auprès de ce qui allait devenir, quelques années plus tard, La Banque postale, il ne semble s'être rien passé de spécial dans le monde le 6 septembre 2002.
 
 J'ai mené ma petite enquête.
 
-C'était un vendredi. J'allais sur mes 31 ans. Selon toute vraisemblance, sans travail, j'étais bénéficiaire du revenu minimum d'insertion (le fameux RMI, et ce n'était pas la première fois que ça m'arrivait).
+C'était un vendredi. J'allais avoir 31 ans dans deux mois. Selon toute vraisemblance, sans travail, le revenu minimum d'insertion (le RMI, et ce n'était pas la première fois que ça m'arrivait) me permettait de survivre.
 
-Ma dernière expérience professionnelle remontait au mois d'avril, dans un centre d'appels basé au Mans (Sarthe), lequel avait décidé de se passer de mes services à l'issue de la période d'essai (du moins c'est ce que l'entreprise croyais, je n'avais pas encore retourné le contrat de travail que j'étais censé signer).
+Ma dernière expérience professionnelle datait d'avril. Elle n'aura pas duré un mois. Le centre d'appels basé au Mans (Sarthe) dans lequel j'opérais avait décidé de se passer de mes services sous un prétexte fallacieux. L'entreprise pensait que j'étais en période d'essai, mais je n'avais pas retourné le contrat de travail, distribué tardivement, que j'étais censé signer.
 
-Je crois que la vraie raison de mon renvoi, c'était que j'avais découvert le pot aux roses et commençais à semer le doute auprès de mes camarades frais émoulus comme moi : on nous faisait croire que nous avions affaire au téléphone à de vrais clients, alors que nous étions encore en formation.
+La vraie raison de mon renvoi, c'était que j'avais découvert le pot aux roses et commençais à semer le doute chez mes camarades frais émoulus comme moi : on nous faisait croire que nous avions affaire au téléphone à de vrais clients, alors que nous étions encore en formation. Je n'ai pas fait d'histoires, j'étais trop content de me barrer.
 
-Un mois plus tard, je devais partir apprendre le métier de développeur de sites Web à Alençon (Orne). Onze mois plus tard, la formation professionnelle ne me mènerait pas davantage à l'emploi. En fait j'en suis ressorti lessivé malgré avoir réussi, certes inintentionnellement, à passer l'été à bronzer au lac de Sillé-le-Guillaume (Sarthe).
+Un mois après ma demande de compte, je me formerai à l'Internet et au développement de sites web, à Alençon (Orne). Un an plus tard, les acquis ne me mèneraient pas davantage à l'emploi. En fait, je suis ressorti lessivé de cet empilement informatique d'outils, de technologies, de langages et de logiciels, malgré avoir inintentionnellement réussi  à faire progresser l'été mon bonzage au lac de Sillé-le-Guillaume (Sarthe).
 
-Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que je me remettre sur les rails (il y avait encore une gare, d'ailleurs, dans cette commune de taille comparable à Fresnay-sur-Sarthe, et qui l'emportera donc logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale).
+Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que s'effectue ma remise sur les rails, dans la presse locale et le soutien scolaire (il y avait encore une gare, d'ailleurs, dans cette commune qui donc l'emportera logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale). Des années plus tard, je me retrouverai cependant à nouveau dans l'impasse.
 
 En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la cour de cassation qui a donc fait date, et relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par un courrier alléchant que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La cour parviendra semble-t-il à mettre fin à cette pratique en demandant tout simplement aux sociétés indélicates de verser les sommes faussement promises.
 
