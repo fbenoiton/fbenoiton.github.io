@@ -12,23 +12,23 @@ La vraie raison de mon renvoi, c'était que j'avais découvert le pot aux roses 
 
 Un mois après ma demande de compte, je me formerai à l'Internet et au développement de sites web, à Alençon (Orne). Un an plus tard, les acquis ne me mèneraient pas davantage à l'emploi. En fait, je suis ressorti lessivé de cet empilement informatique d'outils, de technologies, de langages et de logiciels, malgré avoir inintentionnellement réussi  à faire progresser l'été mon bonzage au lac de Sillé-le-Guillaume (Sarthe).
 
-Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que s'effectue ma remise sur les rails, dans la presse locale et le soutien scolaire (il y avait encore une gare, d'ailleurs, dans cette commune qui donc l'emportera logiquement pour devenir le chef-lieu du nouveau canton issu de la réforme territoriale). Des années plus tard, je me retrouverai cependant à nouveau dans l'impasse.
+Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que s'effectue ma remise sur les rails, dans la presse locale et le soutien scolaire (il y avait encore une gare, d'ailleurs, dans cette commune qui s'imposera comme chef-lieu du nouveau canton issu de la réforme territoriale face à Fresnay-sur-Sarthe). Bien des années plus tard, je me retrouverai à nouveau dans l'impasse.
 
-En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la cour de cassation qui a donc fait date, et relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par un courrier alléchant que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La cour parviendra semble-t-il à mettre fin à cette pratique en demandant tout simplement aux sociétés indélicates de verser les sommes faussement promises.
+En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la Cour de cassation relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par courrier que l'on a remporté une forte somme d'argent et qu'en fait il n'en est rien, que c'est juste une façon de harponner le chaland. La juridiction suprême parviendra semble-t-il à saigner à blanc les sociétés indélicates en leur demandant tout simplmeent de verser les sommes faussement promises.
 
-Dans l'actualité internationale, pas grand-chose non plus se mettre sous la dent, donc. La page de Wikipédia consacrée au mois de [septembre 2002][1] rapporte, pour la journée du 6, cet unique fait :
+Pas grand-chose non plus à signaler dans l'actualité internationale, donc. La page  Wikipédia consacrée au mois de [septembre 2002][1] rapporte cet unique fait :
 
 > Grâce à des photos satellites, de nouvelles infrastructures auraient été détectées sur un ancien site nucléaire en Irak, selon un expert de l'AIEA. Le 7, le président George W. Bush et le premier ministre britannique Tony Blair, réunis à Camp David, estime que c'est une preuve de "menace réelle".
 
 [1]: https://fr.wikipedia.org/wiki/Septembre_2002
 
-J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique n'étant que le valet de l'Amérique dans le ralliement, sur des bases possiblement mensongères, d'autres parties du monde pour envahir l'Irak, l'année suivante, et ainsi obtenir un changement de régime.
+J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre est signifiante, le Britannique aux ordres de l'Amérique dans le ralliement, sur des bases possiblement mensongères, d'autres parties du monde pour envahir l'Irak, l'année suivante, et ainsi obtenir un changement de régime.
 
 Si les Nations Unies veulent un jour instaurer une [Journée mondiale][2] de lutte contre toutes les formes de tricherie, tromperie, duperie et autres abus à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
 [2]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro. Un grand nombe de citoyens français considére que la mise en circulation fiduciaire de la monnaie unique européenne a masqué une phénoménale dégingrolade du pouvoir d'achat par augmentation des prix, le franc, ancienne devise nationale, héritant d'un taux de conversion improbable. 
+Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro. Un grand nombe de citoyens français considére que la mise en circulation fiduciaire de la monnaie unique européenne a masqué une phénoménale dégingrolade du pouvoir d'achat par augmentation des prix, le franc héritant d'un taux de conversion improbable.
 
 ***
 
