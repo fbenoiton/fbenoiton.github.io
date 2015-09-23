@@ -6,15 +6,17 @@ J'ai mené ma petite enquête.
 
 C'était un vendredi. J'allais avoir 31 ans dans deux mois. Selon toute vraisemblance, j'étais sans travail et le revenu minimum d'insertion assurait ma survie (ce n'était pas la première fois que je me retrouvais au RMI).
 
-Ma dernière expérience professionnelle datait d'avril de la même année. Elle n'aura pas duré un mois. Le centre d'appels basé au Mans (Sarthe) dans lequel j'opérais avait finalement décidé de se passer de mes services, sous un prétexte fallacieux. L'employeur pensait que j'étais en période d'essai, mais je n'avais pas retourné le contrat de travail, distribué tardivement à mon groupe de recrues, que j'étais censé signer (la phobie administrative, sans doute).
+Ma dernière expérience professionnelle datait d'avril de la même année. Elle n'aura pas duré un mois. Le centre d'appels basé au Mans (Sarthe) dans lequel j'opérais avait finalement décidé de se passer de mes services, sous un prétexte fallacieux.
 
-La vraie raison de mon renvoi, c'était que j'avais découvert le pot aux roses et que je commençais à semer le doute chez mes camarades frais émoulus : on nous faisait croire que nous avions affaire au téléphone à de vrais clients, alors que nous étions encore en formation. Je n'ai pas fait d'histoires, j'étais trop content de me barrer.
+Fait amusant, mon employeur pensait que j'étais en période d'essai, mais je n'avais pas encore retourné le contrat de travail, distribué tardivement à notre groupe de recrues, que j'étais censé signer (la phobie administrative, sans doute).
 
-Un mois après ma demande de compte chèque, j'irai me former à l'Internet et au développement de sites web, à Alençon (Orne). Un an plus tard, mes nouveaux acquis ne me rapprocheront pas davantage de l'emploi. En fait, je suis ressorti lessivé de cet empilement d'outils informatiques, de technologies, de langages et de logiciels, malgré avoir inintentionnellement réussi à beaucoup faire progresser mon bonzage au lac de Sillé-le-Guillaume (Sarthe) pendant l'été (celui de la canicule européenne 2003).
+La vraie raison de mon renvoi, c'était que j'avais découvert le pot aux roses et que je commençais à semer le doute chez mes camarades frais émoulus : on nous faisait croire que nous avions affaire au téléphone à de vrais clients, alors que nous étions encore en formation ! Je n'ai pas fait d'histoires, j'étais trop content de me barrer.
 
-Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que s'effectue ma remise sur les rails, dans le domaine de la presse locale et du soutien scolaire (il y avait encore une gare, d'ailleurs, dans la commune qui l'emportera sur Fresnay-sur-Sarthe comme chef-lieu du nouveau canton issu de la réforme territoriale). Des années plus tard, je me retrouverai à nouveau dans l'impasse.
+Un mois après ma demande de compte chèque, j'irai me former à l'Internet et au développement de sites web, à Alençon (Orne). Un an plus tard, mes nouveaux acquis ne me rapprocheront pas davantage de l'emploi. En fait, je suis ressorti lessivé de cet empilement d'outils informatiques, technologies, langages et autres logiciels, malgré avoir inintentionnellement réussi à beaucoup faire progresser mon bonzage au lac de Sillé-le-Guillaume (Sarthe) l'été (celui de la canicule européenne 2003).
 
-En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la Cour de cassation relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par courrier que l'on a remporté, sous contrôle d'huissier de justice, un bien ou une somme d'argent importants et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La juridiction suprême opposera l'obligation de délivrer les gains annoncés, à des sociétés indélicates ainsi prises à leur propre jeu.
+Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que s'effectue ma remise sur les rails, dans le domaine de la presse locale et peu après du soutien scolaire, en l'occurrence. (Il y avait encore une gare, d'ailleurs, dans la commune qui l'emportera sur Fresnay-sur-Sarthe comme chef-lieu du nouveau canton issu de la réforme territoriale.) Pour me retrouver, des années plus tard, à nouveau dans l'impasse.
+
+En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la Cour de cassation relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par courrier que l'on a remporté, sous contrôle d'huissier de justice, un bien ou une somme d'argent importants et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La juridiction suprême opposera l'obligation de délivrer les gains annoncés à des sociétés indélicates ainsi prises à leur propre jeu.
 
 Pas grand-chose non plus à se mettre sous la dent dans l'actualité internationale, donc. La page  Wikipédia consacrée au mois de [septembre 2002][1] rapporte cet unique fait :
 
@@ -22,13 +24,13 @@ Pas grand-chose non plus à se mettre sous la dent dans l'actualité internation
 
 [1]: https://fr.wikipedia.org/wiki/Septembre_2002
 
-J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre de coalisés est signifiante, la Grande-Bretagne aux ordres de l'Amérique dans le ralliement, sur des bases possiblement mensongères, d'autres parties du monde pour envahir l'Irak, l'année suivante, et ainsi obtenir un changement de régime hasardeux.
+J'imagine que la faute d'accord du verbe "estimer" avec le couple va-t-en-guerre de coalisés est signifiante, avec une Grande-Bretagne aux ordres de l'Amérique dans le ralliement, sur des bases suspectes, d'autres parties du monde pour envahir l'Irak, l'année suivante, et ainsi obtenir un changement de régime hasardeux.
 
 Si les Nations Unies veulent un jour instaurer une [Journée mondiale][2] de lutte contre toutes les formes de tricherie, tromperie, duperie et autres abus à l'encontre de son prochain, le 6 septembre est libre, même si la *"sensibilisation aux vautours"* (le 5) ou la lutte contre la corruption (en décembre) semblent déjà avoir trouvé leur place dans le calendrier.
 
 [2]: http://www.journee-mondiale.com/les-journees-mondiales.htm
 
-Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro. Un grand nombe de citoyens français considère que la mise en circulation fiduciaire de la monnaie unique européenne a masqué une phénoménale dégingrolade de pouvoir d'achat par augmentation des prix, le franc héritant d'un taux de conversion improbable.
+Enfin, n'oublions pas que l'année 2002 est celle du passage à l'euro. Un grand nombe de citoyens français considère que la mise en circulation fiduciaire de la monnaie unique européenne a masqué une phénoménale dégingrolade de pouvoir d'achat par augmentation des prix, le franc héritant d'un taux de conversion improbable en forme de clé de cryptage.
 
 ***
 
