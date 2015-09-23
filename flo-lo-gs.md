@@ -14,7 +14,7 @@ Un mois après ma demande de compte chèque, j'irai me former à l'Internet et a
 
 Je ne renouerai avec un semblant d'activité professionnelle qu'un peu moins de deux ans plus tard, l'ironie du sort voulant que ce soit depuis Sillé que s'effectue ma remise sur les rails, dans le domaine de la presse locale et du soutien scolaire (il y avait encore une gare, d'ailleurs, dans la commune qui l'emportera sur Fresnay-sur-Sarthe comme chef-lieu du nouveau canton issu de la réforme territoriale). Des années plus tard, je me retrouverai à nouveau dans l'impasse.
 
-En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la Cour de cassation relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par courrier que l'on a remporté, sous contrôle d'huissier de justice, un bien ou une somme d'argent importants et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La juridiction suprême oppose aux sociétés indélicates l'obligation de délivrer les gains annoncés.
+En France, le 6 septembre 2002 reste fortement associé, dans Google, à un arrêt de la Cour de cassation relatif à, vous savez, ces fameuses loteries dites publicitaires où l'on apprend par courrier que l'on a remporté, sous contrôle d'huissier de justice, un bien ou une somme d'argent importants et qu'en fait il n'en est rien, c'est juste une façon de harponner le chaland. La juridiction suprême opposera l'obligation de délivrer les gains annoncés, à des sociétés indélicates ainsi prises à leur propre jeu.
 
 Pas grand-chose non plus à se mettre sous la dent dans l'actualité internationale, donc. La page  Wikipédia consacrée au mois de [septembre 2002][1] rapporte cet unique fait :
 
