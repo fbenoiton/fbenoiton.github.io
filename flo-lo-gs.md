@@ -1,5 +1,19 @@
 ## 
 
+J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant plus de dix ans : c'est quoi Alliatys ? Qu'est-ce que ça couvre ? (Je pense qu'à un moment je l'ai quand même su mais j'ai dû oublier aussi sec.)
+
+Dans ma fameuse pochette jaune, 
+
+
+
+***
+
+La Poste, en 2002, c'était quoi ? Dans quoi j'avais mis les pieds ?
+
+Dans *La face cachée de La Poste* (Enquête sur un service public en péril), aux éditions Flammarion, 
+
+Séverine Cazes et Valérie Hacot 
+
 ***
 
 Je commence à ne me rendre compte que maintenant j'étais parti sur de mauvaises bases avec ma nouvelle banque. La façon dont cela vient de se terminer était écrite. Alors j'ai peut-être bien fait de ne pas faire mon changement d'adresse...
@@ -13,8 +27,6 @@ Les PTT, devaient poursuivre tranquillement leur mue commerciale.
 Dénominations commerciales attrape-gogo. Cela sentait mauvais dès le début.
 
 Finir par ne plus répondre au téléphone : tous ces démarchages pour une carte plus chère, etc. Pourquoi pas fait les démarches en temps et heure (adresse, compte joint) ? Inconsciemment nous serions la proie de nouvelles agressions commerciales à la faveur du changement de situation ? Mon intuition.
-
-En fait qu'est-ce qui a amené à la fermeture : découvert, adresse, les deux, ou l'un révélant indirectement l'autre ? Connais pas en fait la raison.
 
 ***
 
