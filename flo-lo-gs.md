@@ -2,26 +2,25 @@
 
 ***
 
-Sorti des griffes pour tomber dans la gueule du loup de la banque et de la finance.
-Ce n'est n'est qu'en écrivant ces lignes que je commence à ne me rendre compte que maintenant des mauvaises bases sur lesquelles j'étais parti avec ma nouvelle banque, et que la façon dont cela vient de se terminer était peut-être déjà alors écrite.
+Je commence à ne me rendre compte que maintenant j'étais parti sur de mauvaises bases avec ma nouvelle banque. La façon dont cela vient de se terminer était écrite. Alors j'ai peut-être bien fait de ne pas faire mon changement d'adresse...
 
-Je commence tout juste à me dire que j'ai peut-être bien fait de ne pas faire mon changement d'adresse, sinon d'ici quelques mois j'aurais été bon pour un nouveau dossier de surendettement.
+Ma rupture avec BP : pas mécontent que cela marque symboliquement la fin d'une époque, avec l'espoir de l'ouverture d'une ère meilleure. Tout comme dans mes souvenirs la Banque postale et le montage du dossier de surendettement marquaient le début d'une ère nouvelle.
+
+Et puis image ringarde de La Poste.
 
 Les PTT, devaient poursuivre tranquillement leur mue commerciale. 
 
-dénominations commerciales à la con (il ne me viendrait pas à l'idée de regarder TF1...)
-sentait mauvais dès le début à la douce dénomination commerciale vide de sens
-finir par ne plus répondre au téléphone : tous ces démarchages pour une carte plus chère, etc. Pourquoi pas fait les démarches en temps et heure (adresse, compte joint) ? Inconsciemment nous serions la proie de nouvelles agressions commerciales à la faveur du changement de situation ? Mon intuition.
+Dénominations commerciales attrape-gogo. Cela sentait mauvais dès le début.
 
-En fait qu'est-ce qui a amené à la fermeture : découvert, adresse, les deux, ou l'un révélant indirectement l'autre ? connais pas en fait la raison.
+Finir par ne plus répondre au téléphone : tous ces démarchages pour une carte plus chère, etc. Pourquoi pas fait les démarches en temps et heure (adresse, compte joint) ? Inconsciemment nous serions la proie de nouvelles agressions commerciales à la faveur du changement de situation ? Mon intuition.
+
+En fait qu'est-ce qui a amené à la fermeture : découvert, adresse, les deux, ou l'un révélant indirectement l'autre ? Connais pas en fait la raison.
 
 ***
 
-Révélant finalement la vraie nature de ce qu'est une banque, à mon sens : une machine à dépouiller. Avant j'étais à la Banque nationale de Paris, à Caen dans le Calvados puis à Alençon, dans l'Orne. La BNP c'était ma toute première banque, celle de ma jeunesse, de mes études, de mes premières voitures. C'était la banque de mes premiers pas dans la vie active, à la toute fin des années 1990, et de mes premiers RMI (revenu minimum d'insertion). Les affres du surendemettement ont mis fin à notre relation bancaire dans la première moitié des années 2000.
+Banque : machine à dépouiller. Avant j'étais à la Banque nationale de Paris, à Caen dans le Calvados puis à Alençon, dans l'Orne. La BNP c'était ma toute première banque, celle de ma jeunesse, de mes études, de mes premières voitures. C'était la banque de mes premiers pas dans la vie active, à la toute fin des années 1990, et de mes premiers RMI (revenu minimum d'insertion). Les affres du surendemettement ont mis fin à notre relation bancaire dans la première moitié des années 2000.
 
-BNP et CCP, j'ai eu deux banques dans ma vie : banques de grand-père et grand-mère. images positives. d'un certain niveau de vie.
-
-Disons qu'elle va de Une nouvelle vie avait commencé pour moi, dans mes souvenirs, quand j'avais constitué mon dossier de surendettement. 
+BNP et CCP, j'ai eu deux banques dans ma vie : banques de grand-père et grand-mère. images positives. Un certain niveau de vie.
 
 images que je garderai du bureau de poste de fresnay-sur-sarthe
 - depuis 20 ans à la retraite...
@@ -31,11 +30,6 @@ images que je garderai du bureau de poste de fresnay-sur-sarthe
 
 ***
 
-... ma rupture avec BP : pas mécontent fin d'une époque, ouvre une ère nouvelles, ringard ...
-
-(solde resté négatif)En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
-
-pas bien perçu riche et célèbre
-veux pas d'une banque qui ne croirait pas en moi
+En remontant le temps rapidement, j'estime être passé négatif entre mars et avril, le suis donc resté continument depuis puisque qu'aucun crédit n'est jamais apporté à ce compte depuis que ma femme et moi vivons ensemble. 
 
 ● Question en suspens : La Poste Telecom. D'ailleurs quelle adresse ont-ils ? En tout cas Flo m'a dit que je n'avais pas besoin de garder la ligne. Encore redit le 7/9/15. ● Coutances (il faudrait réécouter le message), plus grande ville la plus proche d'Agon-Coutainville... ● (Et le numéro de carte CB donné à AWS...)
