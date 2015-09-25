@@ -1,10 +1,12 @@
-## 
+## Soyez assuré
 
-J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant plus de dix ans : c'est quoi Alliatys ? Qu'est-ce que ça couvre ? (Je pense qu'à un moment je l'ai quand même su mais j'ai dû oublier aussi sec.)
+J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant des années : c'est quoi Alliatys ? Qu'est-ce que ça couvre ? Le conseiller du bureau de poste de Fresnay-sur-Sarthe me l'avait peut-être dit le jour de l'ouverture, et un jour je pense que j'ai dû chercher à savoir ce que c'était, mais j'ai encore dû oublier aussi sec.
 
-Dans ma fameuse pochette jaune, 
+En tout cas j'ai réussi à localiser la mystérieuse notice d'information dont il est fait référence sur le certificat d'adhésion au contrat d'assurance. Dans ma pochette jaune, j'ai en effet mis la main sur les conditions générales de mon nouveau "coompte courant postal" ...
 
+l'encyclopédie des pauvres
 
+centre régional NANTES CHEQUES
 
 ***
 
