@@ -2,18 +2,21 @@
 
 J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant des années : c'est quoi Alliatys ? Qu'est-ce que ça couvre ? Le conseiller du bureau de poste de Fresnay-sur-Sarthe me l'avait peut-être dit le jour de l'ouverture, et un jour je pense que j'ai dû chercher à savoir ce que c'était, mais j'ai encore dû oublier aussi sec.
 
-En tout cas j'ai réussi à localiser la mystérieuse notice d'information dont il est fait référence sur le certificat d'adhésion au contrat d'assurance. Dans ma pochette jaune, j'ai en effet mis la main sur les conditions générales de mon nouveau "coompte courant postal" ...
+En tout cas j'ai réussi à localiser la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance fait allusion. Dans ma pochette jaune, j'ai en effet mis la main sur les conditions générales de mon nouveau "compte courant postal", qui n'est pas daté.  Elles prennent la forme d'un format A3 plié en deux d'une quinzaine de pages assez épaisses. C'est une impression couleur, mais tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062`.
+
+D'ailleurs je viens de m'apercevoir que l'avant-dernière est vierge à part un rectangle de 7 sur 3.5 cm avec écrit en gros dedans *"Conditions générales'"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*. C'est important, la convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans. Or, dans l'article ...
 
 l'encyclopédie des pauvres
 
 centre régional NANTES CHEQUES
+
+et dans lequel j'avais glissé les "Conditions et tarifs des principales prestations financières applicables aux particuliers à compter du 1er juillet 2002". en savoir plus sur les comptes Adispo...
 
 ***
 
 La Poste, en 2002, c'était quoi ? Dans quoi j'avais mis les pieds ?
 
 Dans *La face cachée de La Poste* (Enquête sur un service public en péril), aux éditions Flammarion, 
-
 Séverine Cazes et Valérie Hacot 
 
 ***
