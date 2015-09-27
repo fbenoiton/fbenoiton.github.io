@@ -2,15 +2,28 @@
 
 J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant des années : c'est quoi Alliatys ? Qu'est-ce que ça couvre ? Le conseiller du bureau de poste de Fresnay-sur-Sarthe me l'avait peut-être dit le jour de l'ouverture, et un jour je pense que j'ai dû chercher à savoir ce que c'était, mais j'ai encore dû oublier aussi sec.
 
-En tout cas j'ai réussi à localiser la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance fait allusion. Dans ma pochette jaune, j'ai en effet mis la main sur les conditions générales de mon nouveau "compte courant postal", qui n'est pas daté.  Elles prennent la forme d'un format A3 plié en deux d'une quinzaine de pages assez épaisses. C'est une impression couleur, mais tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062`.
+En tout cas j'ai réussi à localiser la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance fait allusion. Dans ma pochette jaune, j'ai en effet mis la main sur les conditions générales de mon nouveau "compte courant postal", qui n'est pas daté.  Elles prennent la forme d'un format A3 plié en deux d'une quinzaine de pages assez épaisses. C'est une impression couleur, mais tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062` (Google retourne en premier résultat l'état des stocks de munitions de l'Armée américaine).
 
-D'ailleurs je viens de m'apercevoir que l'avant-dernière est vierge à part un rectangle de 7 sur 3.5 cm avec écrit en gros dedans *"Conditions générales'"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*. C'est important, la convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans. Or, dans l'article ...
+D'ailleurs je viens de m'apercevoir que l'avant-dernière page (la troisième de couverture, c'est-à-dire le recto de la quatrième de couverture) est vierge à part un rectangle de 7 sur 3.5 cm avec écrit en gros dedans *"Conditions générales'"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*. La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans. Et disons que ça ne sautait pas aux yeux.
+
+C'est intéressant !
+
+Dans l'article du magazine *Basta!* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][1]
+
+[1]: http://www.bastamag.net/La-Banque-postale-est-elle
+
+Marianne Rigaux
 
 l'encyclopédie des pauvres
 
 centre régional NANTES CHEQUES
 
 et dans lequel j'avais glissé les "Conditions et tarifs des principales prestations financières applicables aux particuliers à compter du 1er juillet 2002". en savoir plus sur les comptes Adispo...
+
+<compte courant postal conditions générales août 2000>
+http://www.legifrance.gouv.fr/affichJuriJudi.do?idTexte=JURITEXT000019894326
+"Le 5 juin 1979, Mme Raymonde X... épouse Y... a ouvert un compte chèque postal auprès du Centre Financier de Paris."
+(cas de chèque émis par un compte cloturé, voir convention de compte) 
 
 ***
 
