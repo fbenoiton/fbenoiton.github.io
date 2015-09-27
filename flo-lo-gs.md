@@ -8,11 +8,11 @@ D'ailleurs je viens de m'apercevoir que l'avant-dernière page (la troisième de
 
 C'est intéressant !
 
-Dans l'article du magazine *Basta!* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][1]
+Dans l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][1], Marianne Rigaux relaie une datation du versement des services financiers de La Poste dans une *"stratégie de la cupidité"* qui situerait le passage du Côté obscur de la Force de La Poste *"au début des années 2000"*. 
 
 [1]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-Marianne Rigaux
+https://getpocket.com/a/read/1042258088
 
 l'encyclopédie des pauvres
 
@@ -24,6 +24,7 @@ et dans lequel j'avais glissé les "Conditions et tarifs des principales prestat
 http://www.legifrance.gouv.fr/affichJuriJudi.do?idTexte=JURITEXT000019894326
 "Le 5 juin 1979, Mme Raymonde X... épouse Y... a ouvert un compte chèque postal auprès du Centre Financier de Paris."
 (cas de chèque émis par un compte cloturé, voir convention de compte) 
+Contrat Sicav Addilys août 2000...
 
 ***
 
