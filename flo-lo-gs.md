@@ -1,18 +1,28 @@
 ## Soyez assuré
 
-J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant des années : c'est quoi Alliatys ? Qu'est-ce que ça couvre ? Le conseiller du bureau de poste de Fresnay-sur-Sarthe me l'avait peut-être dit le jour de l'ouverture, et un jour je pense que j'ai dû chercher à savoir ce que c'était, mais j'ai encore dû oublier aussi sec.
+J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant des années : c'est quoi Alliatys ? Qu'est-ce que couvre cette assurance ? Le conseiller du bureau de poste de Fresnay-sur-Sarthe me l'avait peut-être à l'époque, et un jour je pense que j'ai dû chercher à savoir ce que c'était, mais j'ai encore dû oublier aussi sec.
 
-En tout cas j'ai réussi à localiser la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance fait allusion. Dans ma pochette jaune, j'ai en effet mis la main sur les conditions générales de mon nouveau "compte courant postal", qui n'est pas daté.  Elles prennent la forme d'un format A3 plié en deux d'une quinzaine de pages assez épaisses. C'est une impression couleur, mais tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062` (Google retourne en premier résultat l'état des stocks de munitions de l'Armée américaine).
+J'ai réussi à localiser la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance faisait allusion. Elle se nichait en fait quelque part dans la section "Annexes" qui occupait la majeure partie des "Conditions générales" de mon nouveau "Compte Courant Postal", remises à l'ouverture. Dans ma pochette jaune défraîchie, elles prenaient toujours la forme d'un format A3 plié en deux d'une quinzaine de pages, relié en deux petites agrafes.
 
-D'ailleurs je viens de m'apercevoir que l'avant-dernière page (la troisième de couverture, c'est-à-dire le recto de la quatrième de couverture) est vierge à part un rectangle de 7 sur 3.5 cm avec écrit en gros dedans *"Conditions générales'"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*. La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans. Et disons que ça ne sautait pas aux yeux.
+C'est une impression couleur sur du papier assez épais. Tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062` (Google retourne en premier résultat l'état des stocks de munitions de l'Armée américaine).
 
-C'est intéressant !
+Dans un premier temps, le document ne m'a pas paru daté, mais j'ai fini par m'apercevoir qu'il n'était pas aussi intemporel que cela. L'avant-dernière page (la troisième de couverture, c'est-à-dire le recto de la quatrième de couverture) était vierge, à part un rectangle de 7 sur 3.5 cm avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
 
-Dans l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][1], Marianne Rigaux relaie une datation du versement des services financiers de La Poste dans une *"stratégie de la cupidité"* qui situerait le passage du Côté obscur de la Force de La Poste *"au début des années 2000"*. 
+
+
+***
+
+
+
+La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans. Et nous avons vu que ça ne sautait pas aux yeux.
+
+C'est intéressant, parce que dans dans l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][1], Marianne Rigaux relaie une datation du versement des services financiers de La Poste dans une *"stratégie de la cupidité"* qui situerait *"au début des années 2000"*.
+
+le passage du Côté obscur de la Force de La Poste
 
 [1]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-https://getpocket.com/a/read/1042258088
+***
 
 l'encyclopédie des pauvres
 
@@ -49,7 +59,7 @@ Finir par ne plus répondre au téléphone : tous ces démarchages pour une cart
 
 ***
 
-Banque : machine à dépouiller. Avant j'étais à la Banque nationale de Paris, à Caen dans le Calvados puis à Alençon, dans l'Orne. La BNP c'était ma toute première banque, celle de ma jeunesse, de mes études, de mes premières voitures. C'était la banque de mes premiers pas dans la vie active, à la toute fin des années 1990, et de mes premiers RMI (revenu minimum d'insertion). Les affres du surendemettement ont mis fin à notre relation bancaire dans la première moitié des années 2000.
+Banque : machine à dépouiller (détrousser). Avant j'étais à la Banque nationale de Paris, à Caen dans le Calvados puis à Alençon, dans l'Orne. La BNP c'était ma toute première banque, celle de ma jeunesse, de mes études, de mes premières voitures. C'était la banque de mes premiers pas dans la vie active, à la toute fin des années 1990, et de mes premiers RMI (revenu minimum d'insertion). Les affres du surendemettement ont mis fin à notre relation bancaire dans la première moitié des années 2000.
 
 BNP et CCP, j'ai eu deux banques dans ma vie : banques de grand-père et grand-mère. images positives. Un certain niveau de vie.
 
