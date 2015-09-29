@@ -17,7 +17,7 @@ La convention de compte que j'ai signée en septembre 2002 était donc discrète
 
 La Poste, entité issue, avec France Télécom, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][4] de 1990, n'aurait pas moins bientôt choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à fleurter avec l'immoralité. Et, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
 
-Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications, et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
+Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications (ce qui ne semble pas, à vue de nez, très malin), et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
 
 depuis 2000 branche courrier s'effondre ... article : aggravation même
 
