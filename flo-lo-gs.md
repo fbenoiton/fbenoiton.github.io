@@ -4,27 +4,22 @@ J'avoue que ça m'a pris d'un coup, après n'en n'avoir rien eu à faire pendant
 
 J'ai réussi à localiser la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance faisait allusion. Elle se nichait en fait quelque part dans la section "Annexes" qui occupait la majeure partie des "Conditions générales" de mon nouveau "Compte Courant Postal", remises à l'ouverture. Dans ma pochette jaune défraîchie, elles prenaient toujours la forme d'un format A3 plié en deux d'une quinzaine de pages, relié en deux petites agrafes.
 
-C'est une impression couleur sur du papier assez épais. Tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062` (Google retourne en premier résultat l'état des stocks de munitions de l'Armée américaine).
+C'est une impression couleur sur du papier assez épais. Tout est écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document est référencé `609 796 D - DEPOT 900 - 700062` (pour l'anecdote, à l'heure où j'écris, si l'on entre ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [document][2] d'un bon millier de pages qui semble passer en revue toutes les munitions de l'Armée américaine il y a 20 ans).
+
+[1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
+[2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
 
 Dans un premier temps, le document ne m'a pas paru daté, mais j'ai fini par m'apercevoir qu'il n'était pas aussi intemporel que cela. L'avant-dernière page (la troisième de couverture, c'est-à-dire le recto de la quatrième de couverture) était vierge, à part un rectangle de 7 sur 3.5 cm avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
 
+La convention de compte que j'ai signée en septembre 2002 était donc discrètement en vigueur depuis deux ans (nous avons vu que ça ne sautait pas aux yeux). Je trouve ça intéressant, parce que l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers de La Poste.
 
+La Poste, entité issue, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][2] de 1990, n'aurait pas moins choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société. Et, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
 
-***
+[3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-
-
-La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans. Et nous avons vu que ça ne sautait pas aux yeux.
-
-C'est intéressant, parce que dans dans l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][1], Marianne Rigaux relaie une datation du versement des services financiers de La Poste dans une *"stratégie de la cupidité"* qui situerait *"au début des années 2000"*.
-
-le passage du Côté obscur de la Force de La Poste
-
-[1]: http://www.bastamag.net/La-Banque-postale-est-elle
+cette sévère inflexion commerciale
 
 ***
-
-l'encyclopédie des pauvres
 
 centre régional NANTES CHEQUES
 
