@@ -13,11 +13,16 @@ Dans un premier temps, le document ne m'a pas paru daté, mais j'ai fini par m'a
 
 La convention de compte que j'ai signée en septembre 2002 était donc discrètement en vigueur depuis deux ans (nous avons vu que ça ne sautait pas aux yeux). Je trouve ça intéressant, parce que l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers de La Poste.
 
-La Poste, entité issue, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][2] de 1990, n'aurait pas moins choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société. Et, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
-
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-cette sévère inflexion commerciale
+La Poste, entité issue, avec France Télécom, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][4] de 1990, n'aurait pas moins bientôt choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à fleurter avec l'immoralité. Et, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
+
+Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications, et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
+
+depuis 2000 branche courrier s'effondre ... article : aggravation même
+
+Dans *La face cachée de La Poste* (Enquête sur un service public en péril), aux éditions Flammarion, 
+Séverine Cazes et Valérie Hacot 
 
 ***
 
@@ -34,9 +39,6 @@ Contrat Sicav Addilys août 2000...
 ***
 
 La Poste, en 2002, c'était quoi ? Dans quoi j'avais mis les pieds ?
-
-Dans *La face cachée de La Poste* (Enquête sur un service public en péril), aux éditions Flammarion, 
-Séverine Cazes et Valérie Hacot 
 
 ***
 
