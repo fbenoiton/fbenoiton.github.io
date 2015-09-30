@@ -15,14 +15,20 @@ La convention de compte que j'ai signée en septembre 2002 était donc discrète
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-La Poste, entité issue, avec France Télécom, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][4] de 1990, n'aurait pas moins bientôt choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à fleurter avec l'immoralité. Et, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
+La Poste, entité issue, avec France Télécom, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][4] de 1990, n'aurait pas moins bientôt choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à vers dans l'immoralité. Et, d'après les informations de Marianne Rigaux, il semblerait des avis convergent pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
 
 Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications (ce qui ne semble pas, à vue de nez, très malin), et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
 
-depuis 2000 branche courrier s'effondre ... article : aggravation même
+Dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot évoquent, en [préambule][5], une situation encore plus tendue aujourd'hui, le courrier, coeur de métier du groupe, s'effondrant : c'est la survie même de La Poste qui se jouerait ces trois prochaines années, pour les plus alarmistes, qui se situeraient plutôt du côté de la direction.
 
-Dans *La face cachée de La Poste* (Enquête sur un service public en péril), aux éditions Flammarion, 
-Séverine Cazes et Valérie Hacot 
+[4]: http://www.amazon.fr/gp/product/2081314509/ref=as_li_tl?ie=UTF8&camp=1642&creative=19458&creativeASIN=2081314509&linkCode=as2&tag=fbenoiton-21
+[5]: https://books.google.fr/books?id=yNK4BwAAQBAJ&lpg=PT6&dq=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&hl=fr&pg=PT6#v=onepage&q=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&f=false
+
+Ainsi les services financiers, sous l'enseigne de La Banque postale depuis 2006 arriverait en bonne place pour faire figure de *"planche de salut"*. Mais si la filiale fait état de semestre en semestre de résultats *"solides"* ou *"en progression"*, s'appuyant sur un *"fort dynamisme commercial"*, cela serat-t-il suffisant ?
+
+https://www.labanquepostale.fr/legroupe/investisseurs/resultats-financiers.html
+
+Comme c'est excitant !
 
 ***
 
