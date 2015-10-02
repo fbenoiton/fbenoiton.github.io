@@ -11,11 +11,11 @@ Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant se
 
 Dans un premier temps, le document ne m'a pas semblé daté, mais il n'était bien pas aussi intemporel que cela. J'ai fini par repérer, sur l'avant-dernière page (la troisième de couverture), d'un blanc immaculé, un rectangle de 7 sur 3.5 cm, avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
 
-La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans déjà. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers de La Poste.
+La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans déjà. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers de La Poste. Et, justement, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-La Poste, entité issue, avec France Télécom, selon l'encyclopédie du pauvre Wikipédia, de la [réforme des PTT][4] de 1990, n'aurait pas moins bientôt choisi d'adopter *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à vers dans l'immoralité. Et, d'après les informations de Marianne Rigaux, il semblerait des avis convergent pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
+L'autre entité issue, avec France Télécom, de la [réforme des PTT][4] de 1990 (selon l'encyclopédie du pauvre Wikipédia), aurait bientôt choisi *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à vers dans l'immoralité. 
 
 Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications (ce qui ne semble pas, à vue de nez, très malin), et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
 
