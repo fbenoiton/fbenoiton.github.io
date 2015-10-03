@@ -9,15 +9,19 @@ Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant se
 [1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
 [2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
 
-Dans un premier temps, le document ne m'a pas semblé daté, mais il n'était bien pas aussi intemporel que cela. J'ai fini par repérer, sur l'avant-dernière page (la troisième de couverture), d'un blanc immaculé, un rectangle de 7 sur 3.5 cm, avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
+À première vue, les modalités ne semblaient pas datées. Mais j'ai fini par repérer, en plein milieu de l'avant-dernière page (la troisième de couverture) d'un blanc immaculé, un rectangle de 7 sur 3.5 cm, avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
 
-La convention de compte que j'ai signée en septembre 2002 était donc en vigueur depuis deux ans déjà. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers de La Poste. Et, justement, d'après les informations de Marianne Rigaux, il semblerait qu'un consensus s'établisse pour situer *"au début des années 2000"* le passage du Côté obscur de la Force de La Poste.
+La convention de compte que j'ai signée en septembre 2002 était donc entrée en vigueur  deux ans plus tôt. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013 [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers postaux qui remonterait à cette époque, celui de l'entérinement de *"la stratégie de la cupidité"*.
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-L'autre entité issue, avec France Télécom, de la [réforme des PTT][4] de 1990 (selon l'encyclopédie du pauvre Wikipédia), aurait choisi *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à vers dans l'immoralité. 
+D'après les informations de la journaliste Marianne Rigaux, il semblerait qu'un consensus s'établisse autour du *"des années 2000"* pour situer le passage du Côté obscur de la Force de La Poste.
 
-Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications (ce qui ne semble pas, à vue de nez, très malin), et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
+Privée de sa branche télécommunications, l'autre entité issue, avec France Télécom, de la [réforme des PTT de 1990][4] (selon l'encyclopédie du pauvre Wikipédia), se trouve alors 
+
+aurait choisi , afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à verser dans l'immoralité.
+
+Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc , et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
 
 Dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot évoquent, en [préambule][5], une situation encore plus tendue aujourd'hui, le courrier, coeur de métier du groupe, s'effondrant : c'est la survie même de La Poste qui se jouerait ces trois prochaines années, pour les plus alarmistes, qui se situeraient plutôt du côté de la direction.
 
