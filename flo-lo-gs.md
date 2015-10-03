@@ -1,10 +1,10 @@
 ## Soyez assuré
 
-J'avoue que ça m'a pris d'un coup, après n'en avoir jamais rien eu à faire : c'est quoi Alliatys ? Qu'est-ce que couvre cette assurance ? Qu'est-ce que ça cache ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'avait peut-être dit le jour de l'ouverture de mon compte en banque, et je pense que j'ai dû chercher à savoir ce que c'était une fois depuis, mais j'ai encore dû oublier aussi sec.
+J'avoue que ça m'a pris d'un coup, après n'en avoir jamais rien eu à faire : c'est quoi Alliatys ? Qu'est-ce que couvre cette assurance ? Et pourquoi faire tant de mystère ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'avait-il dit le jour de l'ouverture de mon compte en banque ? J'ai dû chercher à savoir de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
 
-J'ai réussi à localiser dans ma pochette jaune défraîchie la mystérieuse notice d'information à laquelle le certificat d'adhésion au contrat d'assurance faisait allusion. Elle se nichait quelque part dans la section "Annexes" qui occupait la majeure partie des "Conditions générales" de mon nouveau compte postal, un A3 plié en deux d'une quinzaine de pages, relié en deux petites agrafes.
+J'ai débusqué dans ma pochette jaune défraîchie la mystérieuse *"notice d'information"* à laquelle le "certificat d'adhésion" au contrat d'assurance faisait allusion. Elle était en fait venue se nicher dans les "Annexes" des "Conditions générales" de mon nouveau compte postal. Le gros appendice occupait la majeure partie du A3 plié en deux d'une quinzaine de pages, relié en deux petites agrafes.
 
-Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et au dos. Le document est référencé `609 796 D - DEPOT 900 - 700062` (pour l'anecdote, à l'heure où j'écris, si l'on entre ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [document][2] d'un bon millier de pages qui semble passer en revue toutes les munitions de l'Armée américaine il y a 20 ans).
+Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et au dos. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062` (en entrant ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [document][2] d'il y a 20 ans pesant un bon millier de pages, et qui semble passer en revue tous les types de munitions en service dans l'Armée américaine.
 
 [1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
 [2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
@@ -15,7 +15,7 @@ La convention de compte que j'ai signée en septembre 2002 était donc en vigueu
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-L'autre entité issue, avec France Télécom, de la [réforme des PTT][4] de 1990 (selon l'encyclopédie du pauvre Wikipédia), aurait bientôt choisi *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à vers dans l'immoralité. 
+L'autre entité issue, avec France Télécom, de la [réforme des PTT][4] de 1990 (selon l'encyclopédie du pauvre Wikipédia), aurait choisi *"la stratégie de la cupidité"*, afin de faire progresser les revenus qu'elle pouvait tirer de sa clientèle, réputée pour provenir des couches les plus modestes de la société, jusqu'à vers dans l'immoralité. 
 
 Cette sévère inflexion commerciale trouverait sa source dans le début de la fin du courrier postal, avec l'avènement de l'Internet. À charge de l'ancienne administration, qui plus est donc privée de la branche télécommunications (ce qui ne semble pas, à vue de nez, très malin), et qui doit maintenant subvenir en quelque sorte à ses propres besoins, être rentable toute seule comme une grande, de se réinventer, tout en devant assurer, pour de nombreuses années encore, ses missions de service public.
 
