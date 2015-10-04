@@ -25,7 +25,7 @@ Aussi les services financiers du groupe, sous l'enseigne de La Banque postale de
 
 [6]: https://www.labanquepostale.fr/legroupe/investisseurs/resultats-financiers.html
 
-Dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot se font l'écho, en [préambule][5], des vues les alarmistes, à situer plutôt du côté de la direction. Ce n'est pas moins ainsi que la survie même de La Poste qui se jouerait dans les trois prochaines années.
+Dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot se font l'écho, en [préambule][5], des vues les alarmistes, à situer plutôt du côté de la direction. Ce n'est pas moins ainsi que la *"survie"* même de La Poste qui se jouerait dans les *"trois prochaines années"*.
 
 [4]: http://www.amazon.fr/gp/product/2081314509/ref=as_li_tl?ie=UTF8&camp=1642&creative=19458&creativeASIN=2081314509&linkCode=as2&tag=fbenoiton-21
 [5]: https://books.google.fr/books?id=yNK4BwAAQBAJ&lpg=PT6&dq=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&hl=fr&pg=PT6#v=onepage&q=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&f=false
