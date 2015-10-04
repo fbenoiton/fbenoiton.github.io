@@ -21,7 +21,7 @@ La Poste est née, avec France Télécom, de la [réforme des PTT de 1990][4], s
 
 Le passage du Côté obscur de la Force de La Poste prendrait par conséquent sa source dans le début de la fin du courrier non électronique, avec l'avènement de l'Internet grand public (peuvent aussi être invoqués d'autres facteurs comme l'ouverture à la concurrence du courrier postal ou le passage aux 35 heures). De nos jours, le *"coeur de métier du groupe"* n'en finirait plus de s'effondrer.
 
-Aussi les services financiers du groupe, sous l'enseigne de La Banque postale depuis 2006, feraient figure de *"planche de salut"*. Mais si la précieuse filiale [fait état][6] de semestre en semestre de résultats *"solides"* ou *"en progression"* soutenus par un *"fort dynamisme commercial"*, cela sera-t-il suffisant ?
+Aussi les services financiers du groupe, sous l'enseigne de La Banque postale depuis 2006, feraient figure de *"planche de salut"*. Mais si la précieuse filiale [fait état][6] de semestre en semestre de résultats *"solides"* ou *"en progression"*, soutenus en cela par un *"fort dynamisme commercial"*, cela sera-t-il suffisant ?
 
 [6]: https://www.labanquepostale.fr/legroupe/investisseurs/resultats-financiers.html
 
