@@ -2,7 +2,7 @@
 
 Je n'en ai jamais rien eu à faire, mais ça m'a pris d'un coup, à évoquer ainsi le bon vieux temps : c'est quoi Alliatys ? Et pourquoi faire tant de mystère ?
 
-Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit le jour de l'ouverture de mon compte en banque, il y a 13 ans. J'ai dû chercher de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
+Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit le jour de l'ouverture de mon compte en banque postal, il y a 13 ans. J'ai dû chercher de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
 
 J'ai débusqué dans ma pochette jaune défraîchie la mystérieuse *"notice d'information"* à laquelle le "Certificat d'adhésion" au contrat d'assurance faisait allusion. Elle était perdue quelque part dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". L'appendice occupait d'ailleurs la majeure partie du A3 plié en deux d'une quinzaine de pages agrafées. Le sommaire ne comprenait qu'un unique et court chapitre, la convention de compte elle-même, c'est-à-dire ses *"modalités d'ouverture, de fonctionnement et de clôture"*.
 
@@ -17,7 +17,7 @@ La convention de compte que j'ai signée en septembre 2002 était donc entrée e
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-La Poste est née, avec France Télécom, de la [réforme des PTT de 1990][4], selon l'encyclopédie du pauvre Wikipédia. L'ancienne administration, ainsi privée de sa branche télécommunications, doit désormais, en tant qu'entreprise, subvenir en quelque sorte à ses besoins. Elle se doit d'être rentable, tout en ayant à assurer, pour de nombreuses années encore, des missions de service public, jusqu'aux couches les plus modestes de la société française.
+La Poste est née, avec France Télécom, de la [réforme des PTT de 1990][4], selon l'encyclopédie du pauvre Wikipédia. L'ancienne administration doit désormais, en tant qu'entreprise, subvenir en quelque sorte à ses besoins. Elle se doit d'être rentable, tout en ayant à assurer, pour de nombreuses années encore, des missions de service public, jusqu'aux couches les plus modestes de la société française.
 
 Le passage du Côté obscur de la Force de La Poste prendrait alors sa source dans le début de la fin du courrier non électronique, avec l'avènement de l'Internet grand public (on a aussi vu invoqués d'autres facteurs comme l'ouverture à la concurrence du courrier postal ou le passage aux 35 heures). Aujourd'hui, le *"coeur de métier du groupe"* n'en finit plus de *"s'effondrer"*.
 
