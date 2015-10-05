@@ -1,34 +1,34 @@
 ## Soyez assuré
 
-Je n'en ai jamais rien eu à faire, mais ça m'a pris d'un coup : c'est quoi Alliatys ?
+Je n'en ai jamais rien eu à faire, mais ça m'a pris d'un coup, à évoquer le bon vieux temps : c'est quoi Alliatys ? Et pourquoi faire tant de mystère ?
 
-Qu'est-ce que couvre cette assurance ? Pourquoi faire tant de mystère ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit le jour de l'ouverture de mon compte en banque. J'ai dû chercher de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
+Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit le jour de l'ouverture de mon compte en banque, il y a 13 ans. J'ai dû chercher de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
 
-J'ai débusqué dans ma pochette jaune défraîchie la mystérieuse *"notice d'information"* à laquelle le "Certificat d'adhésion" au contrat d'assurance faisait allusion. Elle était en fait perdue dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". Le gros appendice occupait d'ailleurs la majeure partie du A3 plié en deux d'une quinzaine de pages, relié en deux petites agrafes.
+J'ai débusqué dans ma pochette jaune défraîchie la mystérieuse *"notice d'information"* à laquelle le "Certificat d'adhésion" au contrat d'assurance faisait allusion. Elle était perdue quelque part dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". L'appendice occupait d'ailleurs la majeure partie du A3 plié en deux d'une quinzaine de pages agrafées. Le sommaire ne comprenait qu'un unique et court chapitre, la convention de compte elle-même, c'est-à-dire ses *"modalités d'ouverture, de fonctionnement et de clôture"*.
 
-Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. (En entrant ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [document][2] d'il y a 20 ans, qui semble passer en revue tous les types de munitions en service dans l'Armée américaine sur un bon millier de pages.)
+Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. (En entrant ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [pavé][2] d'un bon millier de pages, qui semble passer en revue tous les types de munitions en service dans l'Armée américaine il y a 20 ans.)
 
 [1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
 [2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
 
-À première vue, les modalités de fonctionnement du compte n'étaient pas datées. Mais j'ai fini par repérer, en plein milieu de l'avant-dernière page blanche (la troisième de couverture), un rectangle de 7 sur 3.5 cm, avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
+À première vue, l'ouvrage ne paraissait pas daté. Mais j'ai fini par repérer, en plein milieu de l'avant-dernière page vide (la troisième de couverture), un rectangle de 7 sur 3.5 cm, avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
 
-La convention de compte que j'ai signée en septembre 2002 était donc entrée en vigueur  deux ans plus tôt. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013, [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers postaux, que d'aucuns font remonter, justement, selon Marianne Rigaux, *"au début des années 2000"*. C'est dans ces eaux-là que La Poste aurait entériné *"la stratégie de la cupidité"* pour devenir *"une banque comme les autres"*.
+La convention de compte que j'ai signée en septembre 2002 était donc entrée en vigueur  deux ans plus tôt. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013, [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers postaux, qui se situerait *"au début des années 2000"*, celui de l'entérinement d'une certaine *"stratégie de la cupidité"*, celle de devenir *"une banque comme les autres"*.
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
-La Poste est née, avec France Télécom, de la [réforme des PTT de 1990][4], selon l'encyclopédie du pauvre Wikipédia. L'ancienne administration, ainsi privée de sa branche télécommunications, doit désormais, en tant qu'entreprise, subvenir en quelque sorte à ses propres besoins et être rentable, tout en ayant à assurer, pour de nombreuses années encore, des missions de service public contraignantes jusqu'aux couches les plus modestes de la société française.
+La Poste est née, avec France Télécom, de la [réforme des PTT de 1990][4], selon l'encyclopédie du pauvre Wikipédia. L'ancienne administration, ainsi privée de sa branche télécommunications, doit désormais, en tant qu'entreprise, subvenir en quelque sorte à ses besoins. Elle se doit d'être rentable, tout en ayant à assurer, pour de nombreuses années encore, des missions de service public, jusqu'aux couches les plus modestes de la société française.
 
-Le passage du Côté obscur de la Force de La Poste prendrait par conséquent sa source dans le début de la fin du courrier non électronique, avec l'avènement de l'Internet grand public (peuvent aussi être invoqués d'autres facteurs comme l'ouverture à la concurrence du courrier postal ou le passage aux 35 heures). De nos jours, le *"coeur de métier du groupe"* n'en finirait plus de s'effondrer.
+Le passage du Côté obscur de la Force de La Poste prendrait alors sa source dans le début de la fin du courrier non électronique, avec l'avènement de l'Internet grand public (on a aussi vu invoqués d'autres facteurs comme l'ouverture à la concurrence du courrier postal ou le passage aux 35 heures). Aujourd'hui, le *"coeur de métier du groupe"* n'en finit plus de *"s'effondrer"*.
 
-Aussi les services financiers du groupe, sous l'enseigne de La Banque postale depuis 2006, feraient figure de *"planche de salut"*. Mais si la précieuse filiale [fait état][6] de semestre en semestre de résultats *"solides"* ou *"en progression"*, soutenus en cela par un *"fort dynamisme commercial"*, cela sera-t-il suffisant ?
-
-[6]: https://www.labanquepostale.fr/legroupe/investisseurs/resultats-financiers.html
-
-Dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot se font l'écho, en [préambule][5], des vues les alarmistes, à situer plutôt du côté de la direction. Ce n'est pas moins ainsi que la *"survie"* même de La Poste qui se jouerait dans les *"trois prochaines années"*.
+Aussi les services et produits financiers du groupe, passés sous pavillon La Banque postale en 2006, feraient figure de *"planche de salut"*. Toujours dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot vont jusqu'à se faire l'écho, en [préambule][5], de vues alarmistes, à situer plutôt du côté de la direction. Ce ne serait ainsi pas moins que la *"survie"* même de La Poste qui se jouerait dans les *"trois prochaines années"*.
 
 [4]: http://www.amazon.fr/gp/product/2081314509/ref=as_li_tl?ie=UTF8&camp=1642&creative=19458&creativeASIN=2081314509&linkCode=as2&tag=fbenoiton-21
 [5]: https://books.google.fr/books?id=yNK4BwAAQBAJ&lpg=PT6&dq=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&hl=fr&pg=PT6#v=onepage&q=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&f=false
+
+La précieuse filiale [fait état][6] de semestre en semestre de résultats *"solides"* ou *"en progression"*, soutenus en cela par un *"fort dynamisme commercial"*, mais cela sera-t-il suffisant ?
+
+[6]: https://www.labanquepostale.fr/legroupe/investisseurs/resultats-financiers.html
 
 Comme c'est excitant !
 
