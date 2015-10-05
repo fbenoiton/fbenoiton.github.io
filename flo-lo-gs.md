@@ -1,6 +1,6 @@
 ## Soyez assuré
 
-Je n'en ai jamais rien eu à faire, mais ça m'a pris d'un coup, à évoquer le bon vieux temps : c'est quoi Alliatys ? Et pourquoi faire tant de mystère ?
+Je n'en ai jamais rien eu à faire, mais ça m'a pris d'un coup, à évoquer ainsi le bon vieux temps : c'est quoi Alliatys ? Et pourquoi faire tant de mystère ?
 
 Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit le jour de l'ouverture de mon compte en banque, il y a 13 ans. J'ai dû chercher de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
 
