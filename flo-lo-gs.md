@@ -2,18 +2,19 @@
 
 Je n'en ai jamais rien eu à faire, mais ça m'a pris d'un coup, à évoquer ainsi le bon vieux temps : c'est quoi Alliatys ? Et pourquoi faire tant de mystère ?
 
-Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit le jour de l'ouverture de mon compte en banque postal, il y a 13 ans. J'ai dû chercher de quoi il retournait au moins une fois depuis, pour tout oublier aussi sec.
+Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit, le jour de l'ouverture de mon compte en banque postal, il y a 13 ans. J'ai dû chercher à me rafraîchir la mémoire au moins une fois depuis, pour tout oublier aussi sec.
 
-J'ai débusqué dans ma pochette jaune défraîchie la mystérieuse *"notice d'information"* à laquelle le "Certificat d'adhésion" au contrat d'assurance faisait allusion. Elle était perdue quelque part dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". L'appendice occupait d'ailleurs la majeure partie du A3 plié en deux d'une quinzaine de pages agrafées. Le sommaire ne comprenait qu'un unique et court chapitre, la convention de compte elle-même, c'est-à-dire ses *"modalités d'ouverture, de fonctionnement et de clôture"*.
+J'ai débusqué dans ma pochette jaune défraîchie la mystérieuse *"notice d'information"* à laquelle le "Certificat d'adhésion" aux garanties faisait allusion. Elle était perdue dans les "Conditions générales" de mon nouveau "Compte Courant Postal", au milieu des "Annexes" à la convention de compte, seule tête de chapitre au sommaire. L'appendice composait d'ailleurs la majeure partie du A3 plié en deux d'une quinzaine de pages agrafées, les *"modalités d'ouverture, de fonctionnement et de clôture"* en comptant 4.
 
-Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. (En entrant ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [pavé][2] d'un bon millier de pages, qui semble passer en revue tous les types de munitions en service dans l'Armée américaine il y a 20 ans.)
+Tout était écrit en bleu, sur un papier assez épais, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. En entrant ce code dans Google, le moteur de recherche [retourne][1] en premier résultat un [pavé][2] d'un bon millier de pages, qui semble passer en revue tous les types de munitions en service dans l'Armée américaine il y a 20 ans. Il repose désormais sur la Toile ([PDF][7]).
 
 [1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
 [2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
+[7]: 
 
-À première vue, l'ouvrage ne paraissait pas daté. Mais j'ai fini par repérer, en plein milieu de l'avant-dernière page vide (la troisième de couverture), un rectangle de 7 sur 3.5 cm, avec écrit en gros dedans *"Conditions générales"* et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
+À première vue, l'ouvrage ne paraissait pas daté. Mais j'ai fini par tomber, en plein milieu de l'avant-dernière page vide (la troisième de couverture), sur un rectangle de 7 sur 3.5 cm dans lequel était écrit en gros *"Conditions générales"*, et en beaucoup plus petit en dessous, et toujours centré, *"Août 2000"*.
 
-La convention de compte que j'ai signée en septembre 2002 était donc entrée en vigueur  deux ans plus tôt. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013, [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers postaux, qui se situerait *"au début des années 2000"*, celui de l'entérinement d'une certaine *"stratégie de la cupidité"*, celle de devenir *"une banque comme les autres"*.
+Le compte pour lequel j'ai signé en septembre 2002 était donc entré en vigueur deux ans plus tôt. C'est intéressant, parce que l'article du magazine *Basta !* de février 2013, [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], fait état d'un *"tournant"* dans l'histoire des services financiers postaux qui se situerait *"au début des années 2000"*, celui de l'entérinement d'une certaine *"stratégie de la cupidité"*, celle de devenir *"une banque comme les autres"*.
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
