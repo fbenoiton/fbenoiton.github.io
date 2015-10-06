@@ -20,7 +20,7 @@ Le compte pour lequel j'ai signé en septembre 2002 était donc entré en vigueu
 
 La Poste est née, avec France Télécom, de la [réforme des PTT de 1990][4], selon l'encyclopédie du pauvre Wikipédia. L'ancienne administration doit désormais, en tant qu'entreprise, subvenir en quelque sorte à ses besoins. Elle se doit d'être rentable, tout en ayant à assurer, pour de nombreuses années encore, des missions de service public jusqu'aux couches les plus modestes de la société française.
 
-Le passage du Côté obscur de la Force de La Poste prendrait sa source dans le début de la fin du courrier non électronique, avec l'avènement de l'Internet grand public. Son *"cœur de métier"* n'en finit plus de *"s'effondrer"*. On a aussi pu voir invoqués d'autres facteurs, abracadabrants à mon sens, que sont l'ouverture à la concurrence du courrier postal ou le passage aux 35 heures.
+Le passage du Côté obscur de la Force de La Poste prendrait sa source dans le début de la fin du courrier non électronique, avec l'avènement de l'Internet grand public. Son *"cœur de métier"* n'en finit plus de *"s'effondrer"*. (On voit parfois d'autres facteurs invoqués, plus ou moins abracadabrants, comme l'ouverture à la concurrence du courrier postal ou le passage aux 35 heures.)
 
 Aussi les services et produits financiers du groupe, passés sous pavillon La Banque postale en 2006, feraient figure de *"planche de salut"*. Toujours dans [La face cachée de La Poste][4], paru en avril 2015 aux éditions Flammarion, Séverine Cazes et Valérie Hacot se font l'écho, en [préambule][5], des vues les plus alarmistes, à situer plutôt du côté de la direction : ce ne serait ainsi pas moins que la *"survie"* même de La Poste qui se jouerait dans les *"trois prochaines années"*.
 
