@@ -1,19 +1,17 @@
 ## Soyez assuré
 
-C'est quoi Alliatys ? Je n'en ai jamais rien eu à faire, mais l'envie de savoir m'a pris d'un coup, à évoquer ainsi le bon vieux temps.
+Alliatys, c'est quoi ? L'envie de savoir m'a pris d'un coup, à évoquer ainsi le bon vieux temps. Si le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) m'adit ce que couvrait l'assurance, le jour de l'ouverture de mon compte en banque, il y a 13 ans, alors le sujet a dû être évoqué brièvement. J'ai au moins dû chercher à me rafraîchir la mémoire une fois depuis, pour tout oublier aussi sec.
 
-Qu'est-ce que couvre cette assurance ? Le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) me l'a peut-être dit, le jour de l'ouverture de mon compte en banque, il y a 13 ans. Et j'ai au moins dû chercher à me rafraîchir la mémoire une fois depuis, pour tout oublier aussi sec.
+J'ai débusqué dans ma vieille pochette jaune la *"notice d'information"* à laquelle le "Certificat d'adhésion" faisait allusion. Elle se trouvait dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". Le A3 plié en deux, d'une quinzaine de pages agrafées, ne comprenait qu'un seul court chapitre au sommaire, la convention de compte elle-même.
 
-J'ai débusqué dans ma vieille pochette jaune la *"notice d'information"* à laquelle le "Certificat d'adhésion" faisait allusion. Elle se trouvait dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". Le A3 plié en deux, d'une quinzaine de pages agrafées, ne comprenait d'ailleurs qu'un seul court chapitre au sommaire, la convention de compte elle-même (ses modalités de fonctionnement).
-
-Tout était écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture et en dos de couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. Dans Google, ce code [retourne][1] en tête de liste un [pavé][2] d'un bon millier de pages, qui semble passer en revue tous les types de munitions en service dans l'Armée américaine il y a 20 ans.
+Tout était écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. Dans Google, la chaîne alphanumérique [retourne][1] en tête de liste un [pavé][2] d'un bon millier de pages, le passage en revue semble-t-il de tous les types de munitions en service dans l'Armée américaine il y a 20 ans.
 
 [1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
 [2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
 
-À première vue, l'ouvrage ne paraissait pas daté. Mais j'ai fini par tomber, en plein milieu de l'avant-dernière page vide (la troisième de couverture), sur un encadré de 7 sur 3.5 cm dans lequel était écrit en gros *"Conditions générales"*, et en beaucoup plus petit à la ligne, centré, *"Août 2000"*.
+L'ouvrage ne paraissait pas daté, mais j'ai fini par tomber sur un encadré de 7 sur 3.5 cm en plein milieu de l'avant-dernière page vide (la troisième de couverture), et dans lequel était écrit en gros *"Conditions générales"*, et en beaucoup plus petit à la ligne, centré, *"Août 2000"*.
 
-Le compte pour lequel j'ai signé en septembre 2002 était donc entré en vigueur deux ans plus tôt. C'était une sacrée découverte. Dans [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], un article de février 2013, le magazine *Basta !* évoque en effet un *"tournant"*, avec l'entérinement d'une certaine *"stratégie de la cupidité"*, *"au début des années 2000"* justement !
+L'offre bancaire signée en septembre 2002 était donc entré en vigueur deux ans plus tôt. C'était une sacrée découverte. Dans [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], un article de février 2013, le magazine *Basta !* évoque en effet un *"tournant"*, avec l'entérinement d'une certaine *"stratégie de la cupidité"*, *"au début des années 2000"* justement !
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
