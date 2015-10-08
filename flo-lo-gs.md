@@ -1,8 +1,8 @@
 ## Soyez assuré
 
-Alliatys, c'est quoi ? L'envie de savoir m'a pris d'un coup, à évoquer ainsi le bon vieux temps. Si le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) m'a dit ce que couvrait la mystérieuse assurance, le jour de l'ouverture de mon compte en banque, il y a 13 ans, alors l'évocation a dû être brève. J'ai au moins dû chercher à me rafraîchir la mémoire une fois depuis, pour tout oublier aussi sec.
+Alliatys, c'est quoi ? L'envie de savoir m'a pris d'un coup, à évoquer ainsi le bon vieux temps. Si le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) m'a dit ce que couvrait la mystérieuse assurance, le jour de l'ouverture de mon compte en banque, il y a 13 ans, alors l'évocation a été brève. Depuis, j'ai au moins dû chercher à me rafraîchir la mémoire une fois, pour tout oublier aussi sec.
 
-J'ai débusqué dans ma vieille pochette jaune la *"notice d'information"* à laquelle le "Certificat d'adhésion" faisait allusion. Elle se trouvait dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". Le A3 plié en deux, d'une quinzaine de pages agrafées, ne comprenait qu'un seul court chapitre au sommaire, la convention de compte (les modalités de fonctionnement) elle-même.
+J'ai débusqué dans ma pochette jaune flétrie la *"notice d'information"* à laquelle le "Certificat d'adhésion" faisait allusion. Elle se trouvait dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". Le A3 plié en deux, d'une quinzaine de pages agrafées, ne comprenait qu'un seul court chapitre au sommaire, la convention de compte (les modalités de fonctionnement) elle-même.
 
 Tout était écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. Dans Google, la chaîne alphanumérique [retourne][1] en tête de liste un [pavé][2] d'un bon millier de pages, le passage en revue semble-t-il de tous les types de munitions en service dans l'Armée américaine il y a 20 ans.
 
