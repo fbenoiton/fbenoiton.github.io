@@ -21,7 +21,7 @@ La Poste contemporaine est issue, avec France Télécom, de la [réforme des PTT
 
 [4]: https://fr.wikipedia.org/wiki/R%C3%A9forme_des_PTT_de_1990
 
-Le passage du Côté obscur de la Force serait la conséquence du début de la fin du courrier non électronique, dû à l'avènement de l'Internet grand public. Le *"cœur de métier"* de La Poste n'en finit alors plus de *"s'effondrer"*.
+Le passage du Côté obscur de la Force prendrait sa source dans l'avènement de l'Internet grand public. Le *"cœur de métier"* de La Poste, le traitement et la distribution du courrier non électronique, n'en finit alors plus de *"s'effondrer"*.
 
 Aussi les produits financiers du groupe, passés sous pavillon La Banque postale en 2006, pourraient bien faire figure de *"planche de salut"*, peut-on lire dans [La face cachée de La Poste][5]. L'enquête parue en avril 2015 se fait même l'écho, en [préambule][6], de vues alarmistes : la *"survie"* même de la vénérable institution se jouerait dans les *"trois prochaines années"*.
 
