@@ -1,19 +1,19 @@
 ## Soyez assuré
 
-Alliatys, c'est quoi ? L'envie de savoir m'a pris d'un coup, à évoquer ainsi le bon vieux temps. Si le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) m'a dit ce que couvrait la mystérieuse assurance, le jour de l'ouverture de mon compte en banque, il y a 13 ans, alors l'évocation a été brève. Depuis, j'ai au moins dû chercher à me rafraîchir la mémoire une fois, pour tout oublier aussi sec.
+Alliatys, c'est quoi ? L'envie de savoir m'a pris d'un coup, à évoquer ainsi le bon vieux temps. Si le conseiller financier du bureau de poste de Fresnay-sur-Sarthe (Sarthe) m'a dit ce que couvrait la mystérieuse assurance, le jour de l'ouverture de mon compte en banque, il y a 13 ans, alors l'évocation a dû être brève. Depuis, je pense au moins une fois avoir cherché à me rafraîchir la mémoire, pour tout oublier aussi sec.
 
-J'ai débusqué dans ma pochette jaune flétrie la *"notice d'information"* à laquelle le "Certificat d'adhésion" faisait allusion. Elle se trouvait dans les "Annexes" des "Conditions générales" de mon nouveau "Compte Courant Postal". Le A3 plié en deux, d'une quinzaine de pages agrafées, ne comprenait qu'un seul court chapitre au sommaire, la convention de compte (les modalités de fonctionnement) elle-même.
+J'ai débusqué dans ma vieille pochette jaune la fameuse *"notice d'information"* à laquelle le "Certificat d'adhésion" faisait allusion. Elle se trouvait dans les "Annexes" des *Conditions générales* de mon nouveau *"Compte Courant Postal"*. Le A3 plié en deux, d'une quinzaine de pages agrafées, n'avait qu'un seul court chapitre au sommaire, la convention de compte elle-même (les modalités de fonctionnement).
 
-Tout était écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. Dans Google, la chaîne alphanumérique [retourne][1] en tête de liste un [pavé][2] d'un bon millier de pages, le passage en revue semble-t-il de tous les types de munitions en service dans l'Armée américaine il y a 20 ans.
+Tout était écrit en bleu, du jaune apparaissant seulement pour dessiner le logo de La Poste en couverture. Le document portait la référence interne `609 796 D - DEPOT 900 - 700062`. Dans Google, la chaîne alphanumérique [retourne][1] en tête de liste un [pavé][2] d'un bon millier de pages, le passage en revue, semble-t-il, de tous les types de munitions en service dans l'Armée américaine il y a 20 ans.
 
 [1]: https://www.google.fr/search?q=609+796+D+-+DEPOT+900+-+700062
 [2]: http://docslide.us/documents/tm-43-0001-28-army-ammunition.html
 
-L'ouvrage ne paraissait pas daté, mais j'ai fini par tomber sur un encadré de 7 sur 3.5 cm en plein milieu de l'avant-dernière page, toute blanche (la troisième de couverture), dans lequel était écrit en gros *"Conditions générales"*, et en beaucoup plus petit à la ligne, centré, *"Août 2000"*.
+L'ouvrage ne paraissait pas daté, mais j'ai fini par tomber sur un encadré de 7 par 3.5 cm, en plein milieu de l'avant-dernière page toute blanche (la troisième de couverture). Il y était écrit en gros *"Conditions générales"*, et en beaucoup plus petit à la ligne et centré, *"Août 2000"*.
 
 L'offre bancaire signée en septembre 2002 était donc entré en vigueur deux ans plus tôt.
 
-C'était une sacrée découverte. Dans [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], un article de février 2013, le magazine *Basta !* évoque en effet une certaine *"stratégie de la cupidité"*, *"tournant"* dans l'histoire des services financiers postaux pris *"au début des années 2000"*, justement !
+C'était une sacrée découverte. Dans [La Banque postale est-elle vraiment une "banque citoyenne" ?][3], un article de février 2013, le magazine *Basta !* évoque en effet une certaine *"stratégie de la cupidité"* que les services financiers postaux auraient prise *"au début des années 2000"*, justement !
 
 [3]: http://www.bastamag.net/La-Banque-postale-est-elle
 
@@ -23,7 +23,7 @@ La Poste contemporaine est issue, avec France Télécom, de la [réforme des PTT
 
 Le passage du Côté obscur de la Force prendrait sa source dans l'avènement de l'Internet grand public. Le *"cœur de métier"* de La Poste, l'acheminement du courrier papier, n'en finit alors plus de *"s'effondrer"*.
 
-Aussi les produits financiers du groupe, passés sous pavillon La Banque postale en 2006, pourraient bien faire figure de *"planche de salut"*, peut-on lire dans [La face cachée de La Poste][5]. L'enquête parue en avril 2015 se fait même l'écho, en [préambule][6], de vues alarmistes : la *"survie"* même de la vénérable institution se jouerait dans les *"trois prochaines années"*.
+Aussi les produits financiers du groupe, passés sous pavillon La Banque postale en 2006, pourraient bien faire figure de *"planche de salut"*, peut-on lire dans [La face cachée de La Poste][5]. L'enquête parue en avril 2015 va jusqu'à se faire l'écho, en [préambule][6], de vues alarmistes : la *"survie"* même de la vénérable institution se jouerait dans les *"trois prochaines années"*.
 
 [5]: http://www.amazon.fr/gp/product/2081314509/ref=as_li_tl?ie=UTF8&camp=1642&creative=19458&creativeASIN=2081314509&linkCode=as2&tag=fbenoiton-21
 [6]: https://books.google.fr/books?id=yNK4BwAAQBAJ&lpg=PT6&dq=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&hl=fr&pg=PT6#v=onepage&q=la%20face%20cach%C3%A9e%20de%20la%20poste%20prologue&f=false
