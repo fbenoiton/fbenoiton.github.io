@@ -6,6 +6,9 @@ D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux 
 
 Mais encore ? Il s'agit de permettre au détenteur dudit compte de se *"protéger en cas de perte ou de vol de [sa] carte ou de [son] chéquier"*. En fait, ça ne protège pas du vol ou de la perte, mais des conséquences que cela pourrait avoir pour leur propriétaire. Donc, d'une façon ou d'une autre, si quelqu'un de malintentionné (et qui ne serait pas la Banque postale, logiquement) s'emparait de votre carte bancaire ou de votre chéquier pour procéder à des opérations bancaires à votre place et à son profit, que se passerait-il ?
 
+***
+
+En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
 
 (je note qu'il n'est pas question d'argent, qu'il ne s'agit pas de le mettre à l'abri, à couvert) pas piquer votre fric mais la banque ne peut pas le dire aussi explicitement parce que c'est ce qu'elle fait en fait
 
