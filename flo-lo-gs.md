@@ -1,12 +1,13 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot d'un cheval][1] de courrier : Alliatys c'est *"L'assurance des moyens de paiement"* pour la *"Protection du compte"*.
-
-Plus concrètement, il s'agit de permettre au détenteur dudit compte de se *"protéger en cas de perte ou de vol de [sa] carte ou de [son] chéquier"*. 
+D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot d'un cheval][1] de courrier : Alliatys c'est *"L'assurance des moyens de paiement"* qui va nous garantir la *"Protection du compte"*.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.avantages.html
 
-(je note qu'il n'est pas question d'argent, qu'il ne s'agit pas de le mettre à l'abri, à couvert)
+Mais encore ? Il s'agit de permettre au détenteur dudit compte de se *"protéger en cas de perte ou de vol de [sa] carte ou de [son] chéquier"*. En fait, ça ne protège pas du vol ou de la perte, mais des conséquences que cela pourrait avoir pour leur propriétaire. Donc, d'une façon ou d'une autre, si quelqu'un de malintentionné (et qui ne serait pas la Banque postale, logiquement) s'emparait de votre carte bancaire ou de votre chéquier pour procéder à des opérations bancaires à votre place et à son profit, que se passerait-il ?
+
+
+(je note qu'il n'est pas question d'argent, qu'il ne s'agit pas de le mettre à l'abri, à couvert) pas piquer votre fric mais la banque ne peut pas le dire aussi explicitement parce que c'est ce qu'elle fait en fait
 
 ***
 
