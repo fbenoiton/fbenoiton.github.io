@@ -10,19 +10,34 @@ Il s'agit de permettre au détenteur dudit compte de *"*[se]*protéger en cas de
 
 Autrement dit, ça ne protège pas du vol ou de la perte de ses moyens de paiement mêmes, mais des conséquences pécuniaires que cela pourrait avoir pour leur propriétaire, comme la facturation de frais par la Banque postale pour récupérer une carte ou (mais pas en cas de perte) mettre ses chèques en opposition. Ça vous fait une petite consolation pendant que, par exemple, vous terminez de vous vider de votre sang, dans le cas d'une agression sévère, bien sûr.
 
-Mais entrons sans plus tarder dans le vif du sujet : si l'on en croit, par exemple, cet article du Monde, [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités. Je me régale de cette lecture à l'avance !
+Pour vendre le produit qu'elle commercialise, la banque publique proclame :
+
+> Une assurance des moyens de paiement pour être plus serein au quotidien.
+
+Pour ma part, depuis ma souscription en septembre 2002, je n'ai jamais ressenti, même après les nombreux renouvellement automatiques d'année en année, un apport ou un surcroît de sérénité *"au quotidien"* (il existe d'autres formes de sérénité, peut-être plus transcendantales ?). Cela ressemble fort à une promesse non tenue, et peut-être même intenable.
+
+Est-ce qu'à un moment toutes ces dernières années je me suis dit, sortant avec ma carte bleue sur moi, réglant mes courses au supermarché ou tirant des billets de banque dans une distributeur automatique situé en pleine rue à découvert, je peux y aller, je me sens beaucoup plus serein parce que j'ai Alliatys (même sans le savoir, comme nous l'avons vu) ? Non, en toute honnêteté, je ne peux pas le dire.
+
+Ce qui est vendu, en fait, c'est une illusion, rassurante. Tant que vous n'avez pas besoin d'activer l'une des garanties, elle ne se dissipe pas, elle rest là, vous tenant chaud, virtuellement réconfortante... C'est une part de rêve.
+
+Mais entrons dans le vif du sujet : si l'on en croit, par exemple, ce papier du *Monde*, [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités. Je me régalais de cette lecture à l'avance ! Bon, je dois dire que je suis un peu déçu.
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Bon, en ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009, ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité.
+En ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009. Ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité.
 
-Pour ce qui est des chèques, la question ne s'est jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. Dans le pire des cas, l'opposition sur un chéquier (comme sur carte) que l'on aurait perdu coûtait, à La Poste, 11 € en 2002. ...
+Pour ce qui est des chèques, la question ne s'est semble-t-il jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. On ne va quand même pas prendre une assurance à sa banque pour s'assurer qu'elle fait son travail de gestion de compte !
+
+Dans le pire des cas, l'opposition sur un chéquier (comme sur carte) que l'on aurait perdu coûtait, à La Poste (ou rapportait), 11 € en 2002. ...
+
+différend de solde
+76 € Cave à bière Saint-Léonard-des-Bois
 
 (toute la question est de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyen de paiment]*"*
+ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol. *en cas d'utilisation frauduleuse*
+En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
 
 ***
-
-En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
 
 (je note qu'il n'est pas question d'argent, qu'il ne s'agit pas de le mettre à l'abri, à couvert) pas piquer votre fric mais la banque ne peut pas le dire aussi explicitement parce que c'est ce qu'elle fait en fait
 
