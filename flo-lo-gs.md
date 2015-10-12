@@ -1,10 +1,13 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot d'un cheval][1] de courrier : Alliatys c'est *"L'assurance des moyens de paiement"* qui va nous garantir la *"Protection du compte"*.
+D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot][1] d'un courrier à cheval : Alliatys c'est *"L'assurance des moyens de paiement"* qui va nous garantir la *"Protection du compte"*.
+La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.avantages.html
+[2]: https://www.labanquepostale.fr/content/dam/images/campagnes/Package%20250615/Notice_d_27information_Alliatys_juillet_2015.pdf
+[3]: 
 
-Mais encore ? Il s'agit de permettre au détenteur dudit compte de se *"protéger en cas de perte ou de vol de [sa] carte ou de [son] chéquier"*. En fait, ça ne protège pas du vol ou de la perte, mais des conséquences que cela pourrait avoir pour leur propriétaire. Donc, d'une façon ou d'une autre, si quelqu'un de malintentionné (et qui ne serait pas la Banque postale, logiquement) s'emparait de votre carte bancaire ou de votre chéquier pour procéder à des opérations bancaires à votre place et à son profit, que se passerait-il ?
+Il s'agit de permettre au détenteur dudit compte de se *"protéger en cas de perte ou de vol de *[sa]* carte ou de *[son]* chéquier"* (ou de son téléphone portable, qui peut accessoirement devenir un moyen de paiement *"sans contact*"). On imagine quelqu'un de malintentionné qui s'emparerait de votre carte bancaire (ou de vos espèces à la sortie du distributeur) ou de votre chéquier pour procéder à des opérations impliquant votre argent à votre place et à son profit. Autrement dit, ça ne protège pas du vol ou de la perte de ses moyens de paiement mêmes, mais des conséquences que cela pourrait avoir pour leur propriétaire (comme la facturation de frais par la Banque postale pour récupérer une carte ou (mais pas en cas de perte) mettre ses chèques en opposition).
 
 ***
 
