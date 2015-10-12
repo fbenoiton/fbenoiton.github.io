@@ -1,13 +1,22 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot][1] d'un courrier à cheval : Alliatys c'est *"L'assurance des moyens de paiement"* qui va nous garantir la *"Protection du compte"*.
-La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).
+D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot][1] d'un courrier à cheval : Alliatys c'est *"L'assurance des moyens de paiement"* qui va garantir la *"Protection du compte"*. La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.avantages.html
 [2]: https://www.labanquepostale.fr/content/dam/images/campagnes/Package%20250615/Notice_d_27information_Alliatys_juillet_2015.pdf
 [3]: 
 
-Il s'agit de permettre au détenteur dudit compte de se *"protéger en cas de perte ou de vol de *[sa]* carte ou de *[son]* chéquier"* (ou de son téléphone portable, qui peut accessoirement devenir un moyen de paiement *"sans contact*"). On imagine quelqu'un de malintentionné qui s'emparerait de votre carte bancaire (ou de vos espèces à la sortie du distributeur) ou de votre chéquier pour procéder à des opérations impliquant votre argent à votre place et à son profit. Autrement dit, ça ne protège pas du vol ou de la perte de ses moyens de paiement mêmes, mais des conséquences que cela pourrait avoir pour leur propriétaire (comme la facturation de frais par la Banque postale pour récupérer une carte ou (mais pas en cas de perte) mettre ses chèques en opposition).
+Il s'agit de permettre au détenteur dudit compte de *"*[se]*protéger en cas de perte ou de vol de *[sa]* carte ou de *[son]* chéquier"* (ou de son téléphone portable, qui peut accessoirement devenir un moyen de paiement *"sans contact*"). On imagine quelqu'un de malintentionné qui s'emparerait, plus ou moins violemment, de votre carte bancaire (ou de vos espèces à la sortie du distributeur de billets) ou de votre chéquier pour procéder à des opérations impliquant votre argent à votre place et à son profit.
+
+Autrement dit, ça ne protège pas du vol ou de la perte de ses moyens de paiement mêmes, mais des conséquences pécuniaires que cela pourrait avoir pour leur propriétaire, comme la facturation de frais par la Banque postale pour récupérer une carte ou (mais pas en cas de perte) mettre ses chèques en opposition. Ça vous fait une petite consolation pendant que, par exemple, vous terminez de vous vider de votre sang, dans le cas d'une agression sévère.
+
+Mais entrons sans plus tarder dans le vif du sujet : si l'on en croit, par exemple, cet article du Monde, [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités. Je me régale de cette lecture à l'avance !
+
+[4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
+
+Bon, en ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009, ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité (toute la question est de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyen de paiment]*"*.
+
+Pour ce qui est des chèques, la question ne s'est jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. Dans le pire des cas, l'opposition sur un chéquier (comme sur carte) que l'on aurait perdu coûtait, à La Poste, 11 € en 2002.
 
 ***
 
