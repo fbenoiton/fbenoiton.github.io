@@ -30,6 +30,9 @@ D'un côté, nous avons la réclame d'Alliatys :
 
 En ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009. Ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité.
 
+http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
+(transposition d'une directive européenne)
+
 Pour ce qui est des chèques, la question ne s'est semble-t-il jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. On ne va quand même pas prendre une assurance à sa banque pour s'assurer qu'elle fait son travail de gestion de compte !
 
 Dans le pire des cas, l'opposition sur un chéquier (et autres moyens et opérations de paiement) que l'on aurait perdu coûtait, à La Poste (ou lui rapportait), 11 € en 2002 (rubrique "Incidents de fonctionnement"). Pour comparer avec les tarifs d'aujourd'hui, il va falloir faire un peu de gymnastique de grille tarifaire. Pour les chèques, cela coûte désormais 10.50 € (PDF). En tout cas il y a quelque chose que je ne comprends pas bien : l'argument dans l'article du *Monde* disant que l'assurance ne servait à rien pour les chèques aussi voudrait dire que les frais d'opposition sont infondés.
@@ -39,7 +42,7 @@ Dans le pire des cas, l'opposition sur un chéquier (et autres moyens et opérat
 différend de solde (vol par la banque ?)
 76 € Cave à bière Saint-Léonard-des-Bois
 
-(toute la question est de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyen de paiEment]*"*
+(toute la question est de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyens de paiement]*"*
 ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol. *en cas d'utilisation frauduleuse*
 En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
 
