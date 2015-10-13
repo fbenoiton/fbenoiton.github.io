@@ -31,7 +31,7 @@ D'un côté, nous avons la réclame d'Alliatys :
 En ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009. Ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité.
 
 http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
-(transposition d'une directive européenne)
+(transposition d'une directive européenne du 13 novembre 2007, date de mon anniversaire !)
 
 Pour ce qui est des chèques, la question ne s'est semble-t-il jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. On ne va quand même pas prendre une assurance à sa banque pour s'assurer qu'elle fait son travail de gestion de compte !
 
