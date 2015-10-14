@@ -12,6 +12,8 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
+... après on connaît les assureurs ...
+
 ***
 
 D'un côté, nous avons la réclame d'Alliatys :
