@@ -6,11 +6,13 @@ D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux
 
 Alliatys, c'est *"L'assurance des moyens de paiement"*, entrée de la gamme *"Protection du compte"*. L'établissement financier met en avant les garanties offertes contre la perte et le vol de carte bancaire et de chéquier, en autres systèmes de paiement, dès lors qu'ils pourraient être l'objet d'une utilisation non consentie par un tiers.
 
-La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires, comme les frais bancaires pour récupérer une nouvelle carte ou mettre en opposition son moyen de paiement. Cela ne vous fera qu'une petite consolation au moment de terminer de vous vider de votre sang, dans le cas d'une agression sévère.
+La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires, comme les frais bancaires pour récupérer une nouvelle carte ou mettre en opposition son moyen de paiement. Passer en revue dans votre tête les garanties qui pourront s'appliquer ne vous fera qu'une petite consolation au moment de terminer de vous vider de votre sang, par exemple, dans le cas d'une agression sévère pour vol.
 
-Mais entrons dans le vif du sujet : si l'on en croit, par exemple, ce papier du *Monde*, [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités. Je me régalais de cette lecture à l'avance ! Bon, je dois dire que je suis un peu déçu.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités dans ce papier du *Monde*. Je me régalais de cette lecture à l'avance. Mais le principal argument du quotidien de référence reposait sur la transcription en 2009 d'une certaine directive européenne de 2007. Cela voulait-il dire pour autant, qu'en ce qui me concernait, pendant 7 ans à partir de 2002, que j'avais payé d'année en année pour quelque chose ?
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
+
+***
 
 D'un côté, nous avons la réclame d'Alliatys :
 
