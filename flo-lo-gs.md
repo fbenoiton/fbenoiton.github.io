@@ -1,24 +1,12 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers dans la mesure, où, le produit d'assurance Alliatys existe toujours, c'est le même qu'il y a 13 ans, la dénomination commerciale n'a pas changé. De nos jours, avec l'Internet, la réponse se trouve donc [sous le sabot][1] d'un courrier à cheval : Alliatys c'est *"L'assurance des moyens de paiement"* qui va garantir la *"Protection du compte"*. La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).
+D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les ans. Maintenant, avec l'Internet, la réponse se trouve donc [sous le sabot][1] d'un courrier à cheval.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.avantages.html
-[2]: https://www.labanquepostale.fr/content/dam/images/campagnes/Package%20250615/Notice_d_27information_Alliatys_juillet_2015.pdf
-[3]: 
 
-Il s'agit de permettre au détenteur dudit compte de *"*[se]*protéger en cas de perte ou de vol de *[sa]* carte ou de *[son]* chéquier"* (ou de son téléphone portable, qui peut accessoirement devenir un moyen de paiement *"sans contact*"). On imagine quelqu'un de malintentionné qui s'emparerait, plus ou moins violemment, de votre carte bancaire (ou de vos espèces à la sortie du distributeur de billets) ou de votre chéquier pour procéder à des opérations impliquant votre argent à votre place et à son profit.
+Alliatys, c'est *"L'assurance des moyens de paiement"*, entrée de la gamme *"Protection du compte"*. L'établissement financier met en avant les garanties offertes contre la perte et le vol de carte bancaire et de chéquier, en autres systèmes de paiement, dès lors qu'ils pourraient être l'objet d'une utilisation non consentie par un tiers.
 
-Autrement dit, ça ne protège pas du vol ou de la perte de ses moyens de paiement mêmes, mais des conséquences pécuniaires que cela pourrait avoir pour leur propriétaire, comme la facturation de frais par la Banque postale pour récupérer une carte ou (mais pas en cas de perte) mettre ses chèques en opposition. Ça vous fait une petite consolation pendant que, par exemple, vous terminez de vous vider de votre sang, dans le cas d'une agression sévère, bien sûr.
-
-Pour vendre le produit qu'elle commercialise, la banque publique proclame :
-
-> Une assurance des moyens de paiement pour être plus serein au quotidien.
-
-Pour ma part, depuis ma souscription en septembre 2002, je n'ai jamais ressenti, même après les nombreux renouvellement automatiques d'année en année, un apport ou un surcroît de sérénité *"au quotidien"* (il existe d'autres formes de sérénité, peut-être plus transcendantales ?). Cela ressemble fort à une promesse non tenue, et peut-être même intenable.
-
-Est-ce qu'à un moment toutes ces dernières années je me suis dit, sortant avec ma carte bleue sur moi, réglant mes courses au supermarché ou tirant des billets de banque dans une distributeur automatique situé en pleine rue à découvert, je peux y aller, je me sens beaucoup plus serein parce que j'ai Alliatys (même sans le savoir, comme nous l'avons vu) ? Non, en toute honnêteté, je ne peux pas le dire.
-
-Ce qui est vendu, en fait, c'est une illusion, rassurante. Tant que vous n'avez pas besoin d'activer l'une des garanties, elle ne se dissipe pas, elle rest là, vous tenant chaud, virtuellement réconfortante... C'est une part de rêve.
+La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires, comme les frais bancaires pour récupérer une nouvelle carte ou mettre en opposition son moyen de paiement. Cela ne vous fera qu'une petite consolation au moment de terminer de vous vider de votre sang, dans le cas d'une agression sévère.
 
 Mais entrons dans le vif du sujet : si l'on en croit, par exemple, ce papier du *Monde*, [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités. Je me régalais de cette lecture à l'avance ! Bon, je dois dire que je suis un peu déçu.
 
@@ -39,12 +27,25 @@ Dans le pire des cas, l'opposition sur un chéquier (et autres moyens et opérat
 
 ***
 
+Pour vendre le produit qu'elle commercialise, la banque publique proclame :
+
+> Une assurance des moyens de paiement pour être plus serein au quotidien.
+
+Pour ma part, depuis ma souscription en septembre 2002, je n'ai jamais ressenti, même après les nombreux renouvellement automatiques d'année en année, un apport ou un surcroît de sérénité *"au quotidien"* (il existe d'autres formes de sérénité, peut-être plus transcendantales ?). Cela ressemble fort à une promesse non tenue, et peut-être même intenable.
+
+Est-ce qu'à un moment toutes ces dernières années je me suis dit, sortant avec ma carte bleue sur moi, réglant mes courses au supermarché ou tirant des billets de banque dans une distributeur automatique situé en pleine rue à découvert, je peux y aller, je me sens beaucoup plus serein parce que j'ai Alliatys (même sans le savoir, comme nous l'avons vu) ? Non, en toute honnêteté, je ne peux pas le dire.
+
 différend de solde (vol par la banque ?)
 76 € Cave à bière Saint-Léonard-des-Bois
+
+***
 
 (toute la question est de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyens de paiement]*"*
 ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol. *en cas d'utilisation frauduleuse*
 En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
+
+La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).[2]: https://www.labanquepostale.fr/content/dam/images/campagnes/Package%20250615/Notice_d_27information_Alliatys_juillet_2015.pdf
+[3]: 
 
 ***
 
