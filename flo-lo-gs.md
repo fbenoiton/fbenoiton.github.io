@@ -15,17 +15,13 @@ Il ne pourrait s'agir là tout au plus que d'une maigre consolation, le temps de
 Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *"Le Monde"*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance, mais le principal argument du quotidien de référence reposait sur la [transposition en 2009][5] d'une certaine directive européenne du 13 novembre 2007 (jour de mon anniversaire !), même si cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans à partir de 2002.
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
+[5]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
 
 Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de rembourser, cherchant la petite bête ou ayant toujours une petite ligne écrite en petits caractères du contrat que l'on a signé pour invalider la demande de l'assuré.
 
 La procédure pour faire valoir ses droits peut elle aussi être conçue pour être dissuasive et confiner à la tracasserie administrative. Au regard des sommes sur le tapis, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
 ***
-
-
-
-http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
-(transposition d'une directive européenne du 13 novembre 2007, date de mon anniversaire !)
 
 Pour ce qui est des chèques, la question ne s'est semble-t-il jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. On ne va quand même pas prendre une assurance à sa banque pour s'assurer qu'elle fait son travail de gestion de compte !
 
