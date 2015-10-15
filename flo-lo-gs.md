@@ -12,7 +12,7 @@ La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquence
 
 Il ne pourrait s'agir là tout au plus que d'une maigre consolation, le temps de finir de se vider de son sang, par exemple, dans le cas d'un vol doublé d'une agression qui ne ferait pas dans la dentelle.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *"Le Monde"*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance, mais le principal argument du quotidien de référence reposait sur la transcription en 2009 d'une certaine directive européenne de 2007, même si cela ne voulait pas dire pour autant qu'en ce qui me concernait, pendant 7 ans à partir de 2002, j'avais payé d'année en année pour quelque chose.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *"Le Monde"*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance, mais le principal argument du quotidien de référence reposait sur la [transposition en 2009][5] d'une certaine directive européenne du 13 novembre 2007 (jour de mon anniversaire !), même si cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans à partir de 2002.
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
@@ -22,9 +22,7 @@ La procédure pour faire valoir ses droits peut elle aussi être conçue pour ê
 
 ***
 
-D'un côté, nous avons 
 
-En ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009. Ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité.
 
 http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
 (transposition d'une directive européenne du 13 novembre 2007, date de mon anniversaire !)
