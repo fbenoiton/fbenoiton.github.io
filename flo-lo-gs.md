@@ -17,9 +17,9 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [5]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
 
-Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de rembourser, cherchant la petite bête ou ayant toujours une petite ligne écrite en petits caractères du contrat que l'on a signé pour invalider la demande de l'assuré.
+Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit d'ouvrir sa bourse en application des garanties, sortant de son chapeau la petite ligne écrite en petits caractères du contrat pour opposer une fin de non-recevoir au gentil assuré.
 
-La procédure pour faire valoir ses droits peut elle aussi être conçue pour être dissuasive et confiner à la tracasserie administrative. Au regard des sommes sur le tapis, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
+La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
 ***
 
