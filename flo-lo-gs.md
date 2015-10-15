@@ -6,7 +6,7 @@ D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux
 
 Alliatys, c'est *"L'assurance des moyens de paiement"*. Au chapitre *"Protection du compte"*, l'établissement financier met en avant les garanties contre la perte et le vol de la carte bancaire ou du chéquier du titulaire, dès lors qu'ils pourraient faire l'objet d'une utilisation *"frauduleuse"*.
 
-La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires des aléas du quotidien couverts, parmi lesquels il faut compter les frais bancaires occasionnés, comme le souligne Alliatys sur son site :
+La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires des aléas du quotidien couverts, parmi lesquels il faut compter le règlement de la facture de la banque, comme le souligne Alliatys sur son site :
 
 > L’exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
@@ -18,7 +18,7 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 
 Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de rembourser, cherchant la petite bête ou ayant toujours une petite ligne écrite en petits caractères du contrat que l'on a signé pour invalider la demande de l'assuré.
 
-La procédure pour faire valoir ses droits peut elle aussi être conçue pour être dissuasive et confiner à la tracasserie administrative. Au regard des sommes en jeu, le jeu de l'indemnisation peut s'avérer tout bonnement ne pas en valoir la chandelle.
+La procédure pour faire valoir ses droits peut elle aussi être conçue pour être dissuasive et confiner à la tracasserie administrative. Au regard des sommes sur le tapis, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
 ***
 
