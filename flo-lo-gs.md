@@ -1,24 +1,28 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les ans. Maintenant, avec l'Internet, la réponse se trouve donc [sous le sabot][1] d'un courrier à cheval.
+D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les années, et même la gamme de produits. Avec l'Internet, la réponse se trouve [sous le sabot][1] d'un courrier à cheval.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.avantages.html
 
-Alliatys, c'est *"L'assurance des moyens de paiement"*, entrée de la gamme *"Protection du compte"*. L'établissement financier met en avant les garanties offertes contre la perte et le vol de carte bancaire et de chéquier, en autres systèmes de paiement, dès lors qu'ils pourraient être l'objet d'une utilisation non consentie par un tiers.
+Alliatys, c'est *"L'assurance des moyens de paiement"*. Au chapitre *"Protection du compte"*, l'établissement financier met en avant les garanties contre la perte et le vol de la carte bancaire ou du chéquier du titulaire, dès lors qu'ils pourraient faire l'objet d'une utilisation *"frauduleuse"*.
 
-La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires, comme les frais bancaires pour récupérer une nouvelle carte ou mettre en opposition son moyen de paiement. Passer en revue dans votre tête les garanties qui pourront s'appliquer ne vous fera qu'une petite consolation au moment de terminer de vous vider de votre sang, par exemple, dans le cas d'une agression sévère pour vol.
+La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquences pécuniaires des aléas du quotidien couverts, parmi lesquels il faut compter, eh oui, les les frais bancaires occasionnés, comme le souligne Alliatys en personne sur son site :
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], Alliatys faisant partie des produits cités dans ce papier du *Monde*. Je me régalais de cette lecture à l'avance. Mais le principal argument du quotidien de référence reposait sur la transcription en 2009 d'une certaine directive européenne de 2007. Cela voulait-il dire pour autant, qu'en ce qui me concernait, pendant 7 ans à partir de 2002, que j'avais payé d'année en année pour quelque chose ?
+> L’exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
+
+Il ne pourrait s'agir là tout au plus que d'une maigre consolation, le temps de finir de se vider de son sang, par exemple, dans le cas d'un vol doublé d'une agression qui ne ferait pas dans la dentelle.
+
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *"Le Monde"*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance, mais le principal argument du quotidien de référence reposait sur la transcription en 2009 d'une certaine directive européenne de 2007, même si cela ne voulait pas dire pour autant qu'en ce qui me concernait, pendant 7 ans à partir de 2002, j'avais payé d'année en année pour quelque chose.
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-... après on connaît les assureurs ...
+Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de rembourser, cherchant la petite bête ou ayant toujours une petite ligne écrite en petits caractères du contrat que l'on a signé pour invalider la demande de l'assuré.
+
+La procédure pour faire valoir ses droits peut elle aussi être conçue pour être dissuasive et confiner à la tracasserie administrative. Au regard des sommes en jeu, le jeu de l'indemnisation peut s'avérer tout bonnement ne pas en valoir la chandelle.
 
 ***
 
-D'un côté, nous avons la réclame d'Alliatys :
-
-> L’exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
+D'un côté, nous avons 
 
 En ce qui concerne les cartes bancaires, le principal argument de l'article du quotidien de référence prend appui sur une disposition réglementaire concernant les services de paiement qui date de 2009. Ce qui laisse entendre que l'assurance moyens de paiement pouvait avoir, fut un temps, une réelle utilité.
 
