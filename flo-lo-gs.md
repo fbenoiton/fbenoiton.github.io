@@ -21,9 +21,11 @@ Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assu
 
 La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
-En tout cas c'est vrai, comme la pose alors le quotidien de référence, la question de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyens de paiement]*"*
+Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, c'est que ces assurances
 
-En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. 
+pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre
+
+En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. cheval de Troie
 
 ***
 
