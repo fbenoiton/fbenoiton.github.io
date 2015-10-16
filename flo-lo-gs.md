@@ -21,10 +21,10 @@ Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assu
 
 La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, et encore davantage s'il faut finir par en passer par le tribunal, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
-Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, c'est que ces assurances
+Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, bien que cet aspect soit mis en avant commercialement, c'est ces produits offrent, de fil en aiguille, des garanties dans des domaines connexes. La perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier.
 
 pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre
-
+logique article Basta !
 En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. cheval de Troie
 
 ***
