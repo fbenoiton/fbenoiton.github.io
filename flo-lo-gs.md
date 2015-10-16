@@ -27,7 +27,7 @@ L'exemple le plus frappant est celui du téléphone portable, à l'aube du paiem
 
 logique article Basta !
 
-pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre
+pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre - vente forcée
 
 En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. cheval de Troie
 
