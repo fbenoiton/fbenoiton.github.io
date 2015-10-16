@@ -19,7 +19,7 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 
 Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit d'ouvrir sa bourse pour remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué.
 
-La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
+La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, et encore davantage s'il faut finir par en passer par le tribunal, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
 Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, c'est que ces assurances
 
