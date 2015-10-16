@@ -12,7 +12,7 @@ La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquence
 
 Il ne pourrait s'agir là tout au plus que d'une maigre consolation, le temps de finir de se vider de son sang, par exemple, dans le cas d'un vol doublé d'une agression qui ne ferait pas dans la dentelle.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *"Le Monde"*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance. Mais le principal argument du quotidien de référence reposait sur la [transposition en 2009][5], d'une certaine directive européenne du 13 novembre 2007 (jour de mon anniversaire !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans à partir de 2002.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *Le Monde*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance. Mais le principal argument de l'article reposait sur la [transposition en 2009][5], d'une certaine directive européenne du 13 novembre 2007 (jour de mon anniversaire !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
 
 [4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [5]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
@@ -20,6 +20,10 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit d'ouvrir sa bourse pour remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué.
 
 La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
+
+En tout cas c'est vrai, comme la pose alors le quotidien de référence, la question de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyens de paiement]*"*
+
+En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. 
 
 ***
 
@@ -42,8 +46,7 @@ différend de solde (vol par la banque ?)
 
 ***
 
-(toute la question est de savoir *"Comment, alors, expliquer que les banques continuent à commercialiser *[l'assurance moyens de paiement]*"*
-ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol. *en cas d'utilisation frauduleuse*
+ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol.
 En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
 
 La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).[2]: https://www.labanquepostale.fr/content/dam/images/campagnes/Package%20250615/Notice_d_27information_Alliatys_juillet_2015.pdf
