@@ -12,18 +12,20 @@ La banque parle de *"vous protéger"*, mais il s'agit bien sûr des conséquence
 
 Il ne pourrait s'agir là tout au plus que d'une maigre consolation, le temps de finir de se vider de son sang, par exemple, dans le cas d'un vol doublé d'une agression qui ne ferait pas dans la dentelle.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][4], assène le journal *Le Monde*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance. Mais le principal argument de l'article reposait sur la [transposition en 2009][5], d'une certaine directive européenne du 13 novembre 2007 (jour de mon anniversaire !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde*, le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance. Mais le principal argument de l'article reposait sur la [transposition en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (jour de mon anniversaire !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
 
-[4]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
-[5]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
+[2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
+[3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
 
-Après, quand on a fait un petit peu de chemin dans la vie, on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit d'ouvrir sa bourse pour remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué.
+Après, quand on a fait un petit peu de chemin dans la vie (pas un mot là-dessus pendant la scolarité), on connaît les assureurs. La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit d'ouvrir sa bourse pour remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué. Bien sûr, il n'est pas question de nier la fraude à l'assurance.
 
 La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, et encore davantage s'il faut finir par en passer par le tribunal, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
 Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, bien que cet aspect soit mis en avant commercialement, et que ces garanties sont désormais fournies par la loi, c'est ces produits offrent, de fil en aiguille, font des incursions dans des domaines connexes. La perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier.
 
-L'exemple le plus frappant est celui du téléphone portable, à l'aube du paiement "sans contact" : si on couvre le paiement, on peut couvrir les appels passés sans le consentement du malheureux propriétaire.
+À l'aube du paiement *"sans contact"* avec son téléphone intelligent, l'assurance [couvre][4] logiquement *"l'utilisation frauduleuse de votre application de paiement mobile *[...]* en cas de perte ou de vol"* du précieux accessoire. Mais, pris d'un accès fébrile de générosité, le patron ajoute le *"remboursement des communications frauduleuses"* qui auraient été passées avant d'avoir pu faire opposition auprès de l'opérateur. Ca fait très "cadeau de la maison", je trouve.
+
+[4]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.caracteristiques.html
 
 logique article Basta !
 
