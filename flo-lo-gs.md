@@ -23,7 +23,7 @@ La procédure imposée pour faire valoir ses droits peut elle aussi être conçu
 
 Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, bien que cet aspect soit mis en avant commercialement, et que ces garanties sont désormais fournies par la loi, c'est ces produits offrent, de fil en aiguille, font des incursions dans des domaines connexes. La perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier.
 
-À l'aube du paiement *"sans contact"* avec son téléphone intelligent, l'assurance [couvre][4] logiquement *"l'utilisation frauduleuse de votre application de paiement mobile *[...]* en cas de perte ou de vol"* du précieux accessoire. Mais, pris d'un accès fébrile de générosité, le patron ajoute le *"remboursement des communications frauduleuses"* qui auraient été passées avant d'avoir pu faire opposition auprès de l'opérateur. Ca fait très "cadeau de la maison", je trouve.
+À l'aube du paiement *"sans contact"* avec son téléphone intelligent, l'assurance [couvre][4] logiquement *"l'utilisation frauduleuse de votre application de paiement mobile *[...]* en cas de perte ou de vol"* du précieux accessoire. Mais, pris d'un accès fébrile de générosité, le patron ajoute le *"remboursement des communications frauduleuses"* qui auraient été passées avant d'avoir pu faire opposition auprès de l'opérateur. Cadeau de la maison !
 
 [4]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.caracteristiques.html
 
