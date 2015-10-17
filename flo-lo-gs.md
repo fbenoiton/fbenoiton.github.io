@@ -30,14 +30,13 @@ Le quotidien de référence pose en la question de savoir *"Comment, alors, expl
 Et de l'utilsation non consenti à la garantie de l'appareil lui-même, il n'y a qu'un pas, que franchit le grand frère d'Alliatys, Alliatys Plus, élargissant même l'offre à tout "*produit nomade*", comme les baladeurs (pas ceux à cassette). Il faudrait lire la notice d'information pour voir si ça fait aussi les clés USB 4 Go. On finit en tout cas pas se faire balader loin de la banque.
 
 Si l'article de *Basta !* dénonce ...
-
 pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre - vente forcée
 
 En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. cheval de Troie
 
 autre ou meilleure question : pourquoi les pouvoirs publics laissent faire (à part le fait qu'ils possèdent la Banque postale, encore publique)
 
-évolution des tarifs, poour conclure ce tour rapide ...
+évolution des tarifs, poour conclure ce tour d'horizon rapide ...
 
 ***
 
