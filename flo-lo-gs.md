@@ -21,13 +21,15 @@ Après, quand on a fait un petit peu de chemin dans la vie (pas un mot là-dessu
 
 La procédure imposée pour faire valoir ses droits peut elle aussi être conçue pour être d'une lourdeur excessive voire confiner à la tracasserie administrative. Au regard des préjudices, et encore davantage s'il faut finir par en passer par le tribunal, le jeu de l'indemnisation peut s'avérer ne pas en valoir la chandelle.
 
-Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, bien que cet aspect soit mis en avant commercialement, et que ces garanties sont désormais fournies par la loi, c'est ces produits offrent, de fil en aiguille, font des incursions dans des domaines connexes. La perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier.
+Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, bien que cet aspect soit mis en avant commercialement, et que ces garanties sont désormais fournies par la loi, c'est que ces produits offrent, de fil en aiguille, font des incursions dans des domaines connexes. La perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier.
 
 À l'aube du paiement *"sans contact"* avec son téléphone intelligent, l'assurance [couvre][4] logiquement *"l'utilisation frauduleuse de votre application de paiement mobile *[...]* en cas de perte ou de vol"* du précieux accessoire. Mais, pris d'un accès fébrile de générosité, le patron ajoute le *"remboursement des communications frauduleuses"* qui auraient été passées avant d'avoir pu faire opposition auprès de l'opérateur. Cadeau de la maison !
 
 [4]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.caracteristiques.html
 
-logique article Basta !
+Et de l'utilsation non consenti à la garantie de l'appareil lui-même, il n'y a qu'un pas, que franchit le grand frère d'Alliatys, Alliatys Plus, élargissant même l'offre à tout "*produit nomade*", comme les baladeurs (pas ceux à cassette). Il faudrait lire la notice d'information pour voir si ça fait aussi les clés USB 4 Go. On finit en tout cas pas se faire balader loin de la banque.
+
+Si l'article de *Basta !* dénonce 
 
 pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre - vente forcée
 
