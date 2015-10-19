@@ -21,7 +21,7 @@ Après, on connaît les assureurs, quand on a fait un petit peu de chemin dans l
 
 Le quotidien de référence pose alors la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, nous fait sentir l'odeur du sang. Le truc consiste à mettre en avant la sécurité des moyens de paiement redondante pour encapsuler, de fil en aiguille, des garanties et offres supplémentaires qui finissent par n'avoir qu'un lointain lien de parenté avec les services bancaires. Par exemple, la perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier, contre un léger surcoût.
 
-Mais pourquoi les pouvoirs publics laissent-ils faire ? Mis à part le fait qu'ils tiennent eux aussi une banque.
+Mais pourquoi les pouvoirs publics laissent-ils faire ? Mis à part le fait qu'ils tiennent eux aussi une banque, maintenant.
 
 ***
 
