@@ -1,4 +1,4 @@
-## À la recherche d'Alliatys
+## Tout glisse avec Alliatys
 
 D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les années, et même la gamme de produits. Avec l'Internet, la réponse se trouve [sous le sabot][1] d'un courrier à cheval.
 
@@ -19,7 +19,9 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 
 Après, on connaît les assureurs, quand on a fait un petit peu de chemin dans la vie (pas un mot là-dessus à l'école). La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué. Bien sûr, il n'est pas question de nier la fraude à l'assurance. Enfin, la procédure à suivre pour faire valoir ses droits peut être conçue, au regard des préjudices, pour que le jeu de l'indemnisation n'en vaille pas la chandelle.
 
-Le quotidien de référence pose en la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, apparaît d'emblée excitante et passionnante. La réponse apportée est celle-ci : le truc, bien que cet aspect soit mis en avant commercialement, et que ces garanties sont désormais fournies par la loi, c'est que ces produits offrent, de fil en aiguille, font des incursions dans des domaines connexes. La perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier.
+Le quotidien de référence pose alors la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, nous fait sentir l'odeur du sang. Le truc consiste à mettre en avant la sécurité des moyens de paiement redondantes pour glisser, de fil en aiguille, des garanties supplémentaires qui finissenet par n'avoir qu'un lointain lien de parenté avec les services bancaires. Par exemple, la perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier, pour un léger surcoût.
+
+***
 
 À l'aube du paiement *"sans contact"* avec son téléphone intelligent, l'assurance [couvre][4] logiquement *"l'utilisation frauduleuse de votre application de paiement mobile *[...]* en cas de perte ou de vol"* du précieux accessoire. Mais, pris d'un accès fébrile de générosité, le patron ajoute le *"remboursement des communications frauduleuses"* qui auraient été passées avant d'avoir pu faire opposition auprès de l'opérateur. Cadeau de la maison !
 
