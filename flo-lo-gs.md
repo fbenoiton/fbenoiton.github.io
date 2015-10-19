@@ -19,7 +19,9 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 
 Après, on connaît les assureurs, quand on a fait un petit peu de chemin dans la vie (pas un mot là-dessus à l'école). La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué. Bien sûr, il n'est pas question de nier la fraude à l'assurance. Enfin, la procédure à suivre pour faire valoir ses droits peut être conçue, au regard des préjudices, pour que le jeu de l'indemnisation n'en vaille pas la chandelle.
 
-Le quotidien de référence pose alors la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, nous fait sentir l'odeur du sang. Le truc consiste à mettre en avant la sécurité des moyens de paiement redondantes pour glisser, de fil en aiguille, des garanties supplémentaires qui finissenet par n'avoir qu'un lointain lien de parenté avec les services bancaires. Par exemple, la perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier, pour un léger surcoût.
+Le quotidien de référence pose alors la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, nous fait sentir l'odeur du sang. Le truc consiste à mettre en avant la sécurité des moyens de paiement redondante pour encapsuler, de fil en aiguille, des garanties et offres supplémentaires qui finissent par n'avoir qu'un lointain lien de parenté avec les services bancaires. Par exemple, la perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier, contre un léger surcoût.
+
+Mais pourquoi les pouvoirs publics laissent-ils faire ? Mis à part le fait qu'ils tiennent eux aussi une banque.
 
 ***
 
@@ -31,10 +33,6 @@ Et de l'utilsation non consenti à la garantie de l'appareil lui-même, il n'y a
 
 Si l'article de *Basta !* dénonce ...
 pas uniquement placer un autre produit, mais d'avoir un produit conçu pour passer naturellement à un autre - vente forcée
-
-En gros, il n'y a plus à se faire de souci, les garanties de l'assurance étaient désormais fournies par la loi. cheval de Troie
-
-autre ou meilleure question : pourquoi les pouvoirs publics laissent faire (à part le fait qu'ils possèdent la Banque postale, encore publique)
 
 évolution des tarifs, poour conclure ce tour d'horizon rapide ...
 
