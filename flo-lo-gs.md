@@ -1,4 +1,4 @@
-## Tout glisse avec Alliatys
+## Ça glisse avec Alliatys
 
 D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les années, et même la gamme de produits. Avec l'Internet, la réponse se trouve [sous le sabot][1] d'un courrier à cheval.
 
