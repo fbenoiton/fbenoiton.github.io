@@ -25,6 +25,8 @@ Le quotidien de référence pose alors la question de savoir *"Comment, alors, e
 
 Mais pourquoi les pouvoirs publics laissent-ils faire ? Mis à part le fait qu'ils tiennent eux aussi une banque, maintenant. Personne ne semble avoir les moyens de faire la part des choses, de démonter la fraude légale, pas même la presse. Les choses sont insuffisamment tranchées, peut-être. Le *Monde* n'éclaircit pas les zones d'ombres, concernant ce produit *"inutile dans la très grande majorité des cas"*. Le journal ne dit pas non plus ce qui lui permet de titrer aussi sur la chèreté de l'assurance.
 
+D'ailleurs, à combien évaluer cette fraude légale ?
+
 Et si ce genre d'offre répondait en fait en grande partie à un besoin psychologique ?Alors de ce point de vue ça pourrait être même donné !
 
 Le numérique brouille facilement les repères ...
