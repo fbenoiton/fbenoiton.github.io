@@ -45,6 +45,10 @@ Est-ce qu'à un moment toutes ces dernières années je me suis dit, sortant ave
 différend de solde (vol par la banque ?)
 76 € Cave à bière Saint-Léonard-des-Bois
 
+## Enclencher la pompe
+
+À l'ouverture du compte ... aujourd'hui/il y a 10 ans ...
+
 ***
 
 À l'aube du paiement *"sans contact"* avec son téléphone intelligent, l'assurance [couvre][4] logiquement *"l'utilisation frauduleuse de votre application de paiement mobile *[...]* en cas de perte ou de vol"* du précieux accessoire. Mais, pris d'un accès fébrile de générosité, le patron ajoute le *"remboursement des communications frauduleuses"* qui auraient été passées avant d'avoir pu faire opposition auprès de l'opérateur. Cadeau de la maison !
