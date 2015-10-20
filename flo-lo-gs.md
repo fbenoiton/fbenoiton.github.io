@@ -1,4 +1,4 @@
-## Ça glisse avec Alliatys
+## À la recherche d'Alliatys
 
 D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les années, et même la gamme de produits. Avec l'Internet, la réponse se trouve [sous le sabot][1] d'un courrier à cheval.
 
@@ -19,9 +19,29 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 
 Après, on connaît les assureurs, quand on a fait un petit peu de chemin dans la vie (pas un mot là-dessus à l'école). La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué. Bien sûr, il n'est pas question de nier la fraude à l'assurance. Enfin, la procédure à suivre pour faire valoir ses droits peut être conçue, au regard des préjudices, pour que le jeu de l'indemnisation n'en vaille pas la chandelle.
 
+## Ça glisse avec Alliatys
+
 Le quotidien de référence pose alors la question de savoir *"Comment, alors, expliquer que les banques continuent à les commercialiser"*, les assurances moyens de paiement, nous fait sentir l'odeur du sang. Le truc consiste à mettre en avant la sécurité des moyens de paiement redondante pour encapsuler, de fil en aiguille, des garanties et offres supplémentaires qui finissent par n'avoir qu'un lointain lien de parenté avec les services bancaires. Par exemple, la perte ou le vol de ses papiers d'identité peuvent être facilement mis dans le même sac que le chéquier, contre un léger surcoût.
 
-Mais pourquoi les pouvoirs publics laissent-ils faire ? Mis à part le fait qu'ils tiennent eux aussi une banque, maintenant.
+Mais pourquoi les pouvoirs publics laissent-ils faire ? Mis à part le fait qu'ils tiennent eux aussi une banque, maintenant. Personne ne semble avoir les moyens de faire la part des choses, de démonter la fraude légale, pas même la presse. Les choses sont insuffisamment tranchées, peut-être. Le *Monde* n'éclaircit pas les zones d'ombres, concernant ce produit *"inutile dans la très grande majorité des cas"*. Le journal ne dit pas non plus ce qui lui permet de titrer aussi sur la chèreté de l'assurance.
+
+Et si ce genre d'offre répondait en fait en grande partie à un besoin psychologique ?Alors de ce point de vue ça pourrait être même donné !
+
+Le numérique brouille facilement les repères ...
+
+Finalement ce sont aussi des produits qui ont l'air simple mais qui débouchent rapidement sur une grande complexité. Même le vendeur si perd, ce qui donne des erreurs dans la présentation simplifiée des garanties ... ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol.
+En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
+
+Pour vendre le produit qu'elle commercialise, la banque publique proclame :
+
+> Une assurance des moyens de paiement pour être plus serein au quotidien.
+
+Pour ma part, depuis ma souscription en septembre 2002, je n'ai jamais ressenti, même après les nombreux renouvellement automatiques d'année en année, un apport ou un surcroît de sérénité *"au quotidien"* (il existe d'autres formes de sérénité, peut-être plus transcendantales ?). Cela ressemble fort à une promesse non tenue, et peut-être même intenable.
+
+Est-ce qu'à un moment toutes ces dernières années je me suis dit, sortant avec ma carte bleue sur moi, réglant mes courses au supermarché ou tirant des billets de banque dans une distributeur automatique situé en pleine rue à découvert, je peux y aller, je me sens beaucoup plus serein parce que j'ai Alliatys (même sans le savoir, comme nous l'avons vu) ? Non, en toute honnêteté, je ne peux pas le dire.
+
+différend de solde (vol par la banque ?)
+76 € Cave à bière Saint-Léonard-des-Bois
 
 ***
 
@@ -43,22 +63,6 @@ Pour ce qui est des chèques, la question ne s'est semble-t-il jamais posée, pu
 Dans le pire des cas, l'opposition sur un chéquier (et autres moyens et opérations de paiement) que l'on aurait perdu coûtait, à La Poste (ou lui rapportait), 11 € en 2002 (rubrique "Incidents de fonctionnement"). Pour comparer avec les tarifs d'aujourd'hui, il va falloir faire un peu de gymnastique de grille tarifaire. Pour les chèques, cela coûte désormais 10.50 € (PDF). En tout cas il y a quelque chose que je ne comprends pas bien : l'argument dans l'article du *Monde* disant que l'assurance ne servait à rien pour les chèques aussi voudrait dire que les frais d'opposition sont infondés.
 
 ***
-
-Pour vendre le produit qu'elle commercialise, la banque publique proclame :
-
-> Une assurance des moyens de paiement pour être plus serein au quotidien.
-
-Pour ma part, depuis ma souscription en septembre 2002, je n'ai jamais ressenti, même après les nombreux renouvellement automatiques d'année en année, un apport ou un surcroît de sérénité *"au quotidien"* (il existe d'autres formes de sérénité, peut-être plus transcendantales ?). Cela ressemble fort à une promesse non tenue, et peut-être même intenable.
-
-Est-ce qu'à un moment toutes ces dernières années je me suis dit, sortant avec ma carte bleue sur moi, réglant mes courses au supermarché ou tirant des billets de banque dans une distributeur automatique situé en pleine rue à découvert, je peux y aller, je me sens beaucoup plus serein parce que j'ai Alliatys (même sans le savoir, comme nous l'avons vu) ? Non, en toute honnêteté, je ne peux pas le dire.
-
-différend de solde (vol par la banque ?)
-76 € Cave à bière Saint-Léonard-des-Bois
-
-***
-
-ce qui rend ces produits d'assurance illisibles c'est le fait de mener de front, artificielle perte et vol.
-En fait je me demandais ce qu'il en était quand il y avait ruse et manipulation, avec des combines touchant principalement les personnes âgées ...
 
 La dernière version de la "Notice d'information" est même [en téléchargement][2] ([PDF juillet 2015][3]).[2]: https://www.labanquepostale.fr/content/dam/images/campagnes/Package%20250615/Notice_d_27information_Alliatys_juillet_2015.pdf
 [3]: 
