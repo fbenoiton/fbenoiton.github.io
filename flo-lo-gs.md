@@ -2,15 +2,15 @@
 
 D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé malgré les années, et même la gamme de produits. Avec l'Internet, la réponse se trouve [sous le sabot][1] d'un courrier à cheval.
 
-[1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.avantages.html
+[1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.html
 
 Alliatys, c'est *"L'assurance des moyens de paiement"*. Au chapitre *"Protection du compte"*, l'aujourd'hui Banque postale met en avant les garanties contre la perte et le vol de la carte bancaire ou du chéquier du titulaire et l'utilisation *"frauduleuse"* de ces derniers.
 
-L'établissement financier parle de *"*[n]*ous protéger"*, nous, mais il s'agit bien sûr des conséquences pécuniaires des aléas couverts, parmi lesquels figure le règlement de la facture de la banque, comme le souligne Alliatys sur son site, promettant :
+L'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous protéger, nous, mais des conséquences pécuniaires des aléas couverts, parmi lesquels figure le règlement de la facture qui risquerait alors d'être présentée par la banque, comme le souligne d'ailleurs Alliatys sur son site, en promettant :
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-Il ne pourrait s'agir là tout au plus que d'une maigre consolation, le temps de finir de se vider de son sang, par exemple, dans le cas d'un vol doublé d'une agression qui n'aurait pas fait dans la dentelle.
+Cela nous ferait une belle jambe, le temps de finir de se vider de son sang, par exemple, dans le cas d'un vol doublé d'une agression sévère.
 
 Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde*. Le jeune Alliatys faisant partie des produits nommément cités dans le papier de 2013. Je me régalais de cette lecture à l'avance. Mais le principal argument de l'article reposait sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
 
