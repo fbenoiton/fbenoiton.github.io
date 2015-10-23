@@ -17,7 +17,7 @@ Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens d
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
-Pour reprendre notre exemple, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de débit frauduleux, alors le remplacement anticipé du moyen de paiement est bien à la charge du client, un coût que l'assurance est donc censée prendre en charge.
+Pour reprendre notre exemple, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de débit frauduleux, alors le remplacement anticipé du moyen de paiement est bien à la charge du client, un coût que l'assurance est donc censée prendre en charge. Mais les sommes en jeu ne doivent pas être en tout état de cause considérables.
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
 
