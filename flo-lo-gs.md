@@ -15,7 +15,15 @@ Le temps de finir de nous vider de notre sang, victimes d'un vol doublé d'une a
 Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013, le jeune Alliatys faisant partie des produits nommément cités. Je me régalais de cette lecture à l'avance, mais s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
 
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
-[3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=LEGITEXT000020859337
+[3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
+
+Pour reprendre notre exemple, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de débit frauduleux, alors le remplacement anticipé du moyen de paiement est bien à la charge du client, un coût que l'assurance est donc censée prendre en charge.
+
+[4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
+
+les établissements de paiement
+le vol est plus vendeur que la perte, plus peur
+
 
 ## Ça glisse avec Alliatys
 
