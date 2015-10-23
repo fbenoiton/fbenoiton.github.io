@@ -12,7 +12,7 @@ Si, dans le petit laïus d'introduction, l'établissement de crédit parle de *"
 
 Le temps de finir de nous vider de notre sang, victimes d'un vol doublé d'une agression sévère, nous tiendrions là une bien maigre consolation.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013, le jeune Alliatys faisant partie des produits nommément cités. Je me régalais de cette lecture à l'avance, mais s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013, le jeune Alliatys faisant partie des produits nommément cités. Je me régalais de cette lecture à l'avance, mais s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !).
 
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
@@ -23,7 +23,7 @@ Pour reprendre notre exemple, *"le client abusé n'a pas à régler de frais de 
 
 les établissements de paiement
 le vol est plus vendeur que la perte, plus peur
-
+de botton on anger fieffés optimistes
 
 ## Ça glisse avec Alliatys
 
@@ -71,6 +71,8 @@ pas uniquement placer un autre produit, mais d'avoir un produit conçu pour pass
 évolution des tarifs, poour conclure ce tour d'horizon rapide ...
 
 ***
+
+Cela ne voulait pas dire pour autant qu'en ce qui me concernait, j'avais payé pour quelque chose pendant 7 ans, à partir de 2002.
 
 Pour ce qui est des chèques, la question ne s'est semble-t-il jamais posée, puisque la signature et sa vérification sont censés sécuriser le processus. J'ajouterai que la perte ou le vol de chèques est prévu dans la convention de compte même, si j'en crois mes conditions générales d'août 2000. On ne va quand même pas prendre une assurance à sa banque pour s'assurer qu'elle fait son travail de gestion de compte !
 
