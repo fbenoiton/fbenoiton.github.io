@@ -12,7 +12,7 @@ Si, dans le petit laïus d'introduction, l'établissement de crédit parle de *"
 
 Le temps de finir de nous vider de notre sang, victimes d'un vol doublé d'une agression sévère, nous tiendrions là une bien maigre consolation.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013, le jeune Alliatys faisant partie des produits nommément cités. Je me régalais de cette lecture à l'avance, mais s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !).
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013, le jeune Alliatys faisant partie des produits nommément cités. Je me régalais de cette lecture à l'avance, mais s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). En gros, tout débit contesté par le client doit être remboursé par l'établissement de paiement.
 
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
@@ -21,11 +21,12 @@ Pour reprendre notre exemple, *"le client abusé n'a pas à régler de frais de 
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
 
-les établissements de paiement
 le vol est plus vendeur que la perte, plus peur
 de botton on anger fieffés optimistes
 
 ## Ça glisse avec Alliatys
+
+"Attention : dans certaines banques, l’assurance perte ou vol des moyens de paiement et des papiers n’est valable que si les incidents sont simultanés." http://www.60millions-mag.com/guides_d_achat/conseils_d_experts/comment_plumer_votre_banquier/devez_vous_assurer_carte_et_chequier_nbsp
 
 Après, on connaît les assureurs, quand on a fait un petit peu de chemin dans la vie (pas un mot là-dessus à l'école). La corporation a la réputation d'avoir tendance à rechigner dès qu'il s'agit de remplir sa part de contrat, sortant de son chapeau la petite ligne écrite en petits caractères pour opposer une fin de non-recevoir à l'escroqué. Bien sûr, il n'est pas question de nier la fraude à l'assurance. Enfin, la procédure à suivre pour faire valoir ses droits peut être conçue, au regard des préjudices, pour que le jeu de l'indemnisation n'en vaille pas la chandelle.
 
