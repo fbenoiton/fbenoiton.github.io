@@ -23,7 +23,7 @@ Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
 
-
+... 
 
 ## Ça glisse avec Alliatys
 
