@@ -1,23 +1,25 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté, je n'ai pas dans l'absolu besoin de rechercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours, la dénomination commerciale n'a pas changé avec les années. Avec l'Internet, la réponse se trouve [sous le sabot][1] d'un courrier à cheval.
+D'un autre côté, je n'ai pas besoin d'aller chercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours. La dénomination commerciale n'a pas changé avec le nombre des années. La réponse se trouve [sous le sabot][1] d'un courrier à cheval sur l'Internet.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.html
 
-Alliatys, c'est donc *"L'assurance des moyens de paiement"*, à verser au dossier de la *"Protection du compte"*. L'aujourd'hui Banque postale propose des garanties contre la perte et le vol de la carte bancaire ou du chéquier et l'utilisation *"frauduleuse"* de ces derniers.
+Alliatys, c'est donc *"L'assurance des moyens de paiement"*. Sous la rubrique *"Protection du compte"*, la désormais Banque postale propose des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés.
 
-Si, dans le petit laïus d'introduction, l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de préserver notre intégrité, à nous, mais de nous éviter les conséquences pécuniaires des aléas dont nous pourrions être victimes, comme le règlement de la facture alors présentée par la banque. C'est d'ailleurs ce que souligne Alliatys sur son site, en promettant :
+Si, dans sa phrase d'introduction, l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous, mais des conséquences pécuniaires des aléas couverts. À commencer par la facture présentée par la banque, comme le souligne d'ailleurs Alliatys sur son site :
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-Le temps de finir de nous vider de notre sang, victimes d'un vol doublé d'une agression sévère, nous tiendrions là une bien maigre consolation.
+On s'imaginerait, le temps de finir de nous vider de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013, le jeune Alliatys faisant partie des produits nommément cités. Je me régalais de cette lecture à l'avance, mais s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). En gros, tout débit contesté par le client doit être remboursé par l'établissement de paiement.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013. Le jeune Alliatys fait partie des produits nommément cités.
+
+Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). La loi voulait désormais le remboursement par l'établissement de paiement de tout débit contesté par le titulaire. Et même que *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
 
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
-Pour reprendre notre exemple, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de débit frauduleux, alors le remplacement anticipé du moyen de paiement est bien à la charge du client, un coût que l'assurance est donc censée prendre en charge. Mais les sommes en jeu ne doivent pas être en tout état de cause considérables.
+Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de débit frauduleux, alors le remplacement anticipé du moyen de paiement est bien à la charge du client, un coût que l'assurance est donc censée prendre en charge. Mais les sommes en jeu ne doivent pas être en tout état de cause considérables.
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
 
