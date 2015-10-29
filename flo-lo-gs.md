@@ -10,23 +10,24 @@ Si, dans sa phrase d'introduction, l'établissement de crédit parle de *"*[n]*o
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-On s'imaginerait, le temps de finir de nous vider de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation.
+On s'imaginerait, le temps de finir de nous vider de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation. En tout cas Alliatys n'est pas  explicite pour dire comment sa *"protection"* s'exerce.
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013. Le jeune Alliatys fait partie des produits nommément cités.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013. Et notre Alliatys fait partie des produits nommément cités.
 
-Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). La loi voulait désormais le remboursement par l'établissement de paiement de tout débit contesté par le titulaire. Et même que *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
+Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). La loi voulait désormais le remboursement par l'établissement de paiement de tout débit contesté par le titulaire. Et même que *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Mais qu'en était-il avant, pendant les 7 années à partir de 2002 en ce qui me concernait ?
 
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
-Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de débit frauduleux, alors le remplacement anticipé du moyen de paiement est bien à la charge du client, un coût que l'assurance est donc censée prendre en charge. Mais les sommes en jeu ne doivent pas être en tout état de cause considérables.
+Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de *"débit frauduleux"*, alors le *"renouvellement anticipé"* du moyen de paiement est bien à la charge du client, et là l'assurance peut jouer (mais les sommes en jeu ne doivent pas être considérables, et si tant est que la procédure à suivre n'est pas trop lourde).
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
 
-le vol est plus vendeur que la perte, plus peur
-de botton on anger fieffés optimistes
+
 
 ## Ça glisse avec Alliatys
+
+le vol est plus vendeur que la perte, plus peur. (l'inverse pour l'autre produit d'assurance.) de botton on anger fieffés optimistes
 
 "Attention : dans certaines banques, l’assurance perte ou vol des moyens de paiement et des papiers n’est valable que si les incidents sont simultanés." http://www.60millions-mag.com/guides_d_achat/conseils_d_experts/comment_plumer_votre_banquier/devez_vous_assurer_carte_et_chequier_nbsp
 
