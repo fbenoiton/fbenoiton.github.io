@@ -23,13 +23,16 @@ Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
 
+## Comme dans un tableau
+
 À vouloir mettre ainsi dans le même panier la perte et le vol des moyens de paiement nuit à la lisibilité de ce type de produit d'assurance. À l'image du tableau récapitulatif des garanties offertes (en fonction du type d'incident et du moyen de paiement), sur une [sous-page][5] du site d'Alliatys : le dessin des cases entretient le flou de leurs limites ténues (extrait de [copie d'écran]|6] isolant deux cellules vides). 
 
 [5]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.garanties.html
 [6]: 
 
-En tout cas les premières lignes du tableau ont de quoi interloquer. Par exemple, dans la première ligne *"Perte/Vol"* (on comprend perte *ou* vol) de sa carte de crédit, on déduit que l'on peut se voir rembourser jusqu'à *"3 000 € par sinistre et par année d’assurance"*. Si elle est inutile, l'assurance payante couvre en plus moins bien que la loi "gratuite" !
+En tout cas le tableau ont de quoi interloquer. Par exemple, dans la première ligne *"Perte/Vol"* (on comprend perte *ou* vol) de sa carte de crédit, on déduit que l'on peut se voir rembourser jusqu'à *"3 000 € par sinistre et par année d’assurance"*. En théorie, si elle est inutile, l'assurance payante couvre en plus moins bien que la loi "gratuite", qui impose le remboursement intégral, quelle que soit la somme.
 
+Il n'y a pas que le design graphique. En fait le tableau "distingue" trois type de garanties : 
 
 ## Ça glisse avec Alliatys
 
