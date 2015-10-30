@@ -25,6 +25,9 @@ Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas
 
 ## Comme dans un tableau
 
+En tout état de cause, il semble difficile d'y voir clair.
+transactions internet perdues dans "sécurité fraude" "protection de la vie quotidienne"
+
 À vouloir mettre ainsi dans le même panier la perte et le vol des moyens de paiement nuit à la lisibilité de ce type de produit d'assurance. À l'image du tableau récapitulatif des garanties offertes (en fonction du type d'incident et du moyen de paiement), sur une [sous-page][5] du site d'Alliatys : le dessin des cases entretient le flou de leurs limites ténues (extrait de [copie d'écran]|6] isolant deux cellules vides). 
 
 [5]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.garanties.html
