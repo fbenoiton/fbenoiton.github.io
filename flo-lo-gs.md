@@ -1,16 +1,16 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté, je n'ai pas besoin d'aller chercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours. La dénomination commerciale n'a pas changé avec le nombre des années. La réponse se trouve [sous le sabot][1] d'un courrier à cheval sur l'Internet.
+D'un autre côté, dans l'absolu, je n'ai pas besoin d'aller chercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours. La dénomination commerciale n'a pas changé avec le nombre des années. La réponse se trouve [sous le sabot][1] d'un courrier à cheval sur l'Internet.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.html
 
-Alliatys, c'est donc *"L'assurance des moyens de paiement"*. Sous la rubrique *"Protection du compte"*, la désormais Banque postale propose des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés.
+Alliatys, c'est donc *"L'assurance des moyens de paiement"*. Sous la rubrique *"Protection du compte"*, la depuis devenue Banque postale propose des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés, entre autres systèmes de paiement.
 
 Si, dans sa phrase d'introduction, l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous, mais des conséquences pécuniaires des aléas couverts. À commencer par la facture présentée par la banque, comme le souligne d'ailleurs Alliatys sur son site :
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-On s'imaginerait, le temps de finir de nous vider de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation. En tout cas Alliatys n'est pas  explicite pour dire comment sa *"protection"* s'exerce.
+On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation (mais avec une carotide sectionnée et les deux poignets tranchés, il n'y a pas à s'en faire trop longtemps). Après, comme c'est écrit dans The Book of Life, 
 
 Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013. Et notre Alliatys fait partie des produits nommément cités.
 
@@ -19,11 +19,11 @@ Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'ap
 [2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 [3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
+## Comme dans un tableau
+
 Un article [plus récent][4] apporte une nuance en cas de perte : s'il n'y a pas de *"débit frauduleux"*, alors le *"renouvellement anticipé"* du moyen de paiement est bien à la charge du client, et là l'assurance peut jouer (mais les sommes en jeu ne doivent pas être considérables, et si tant est que la procédure à suivre n'est pas trop lourde).
 
 [4]: http://www.lemonde.fr/argent/article/2014/07/07/fraude-a-la-carte-bancaire-le-client-d-abord_4451660_1657007.html
-
-## Comme dans un tableau
 
 En tout état de cause, il semble difficile d'y voir clair.
 transactions internet perdues dans "sécurité fraude" "protection de la vie quotidienne"
