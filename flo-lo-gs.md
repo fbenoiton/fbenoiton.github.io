@@ -10,7 +10,11 @@ Si, dans sa phrase d'introduction, l'établissement de crédit parle de *"*[n]*o
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation (mais avec une carotide sectionnée et les deux poignets tranchés, il n'y a pas à s'en faire trop longtemps). Après, comme c'est écrit dans The Book of Life, 
+On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation (mais avec une carotide sectionnée et les deux poignets tranchés, il n'y a pas à s'en faire trop longtemps).
+
+Après, comme [c'est écrit][2] dans *The Book of Life*, le bon compagnon n'est pas celui qui empêche les mauvaises choses de nous arriver. Qui le pourrait ? C'est la vie, fondamentalement imparfaite, nous sommes destinés à rencontrer de nombreuses difficultés sur notre parcours. Le bon compagnon n'est pas de ceux qui prétendent nous éviter les problèmes. C'est celui qui, face aux aléas de la vie, nous apporte, à notre côté, son indéfectible soutien pour nous aider à y faire face. Que nous soyons terrifiés, épuisés ou désorientés, le bon compagnon se montre patient et généreux : il partage sa sagesse et son savoir, nous fournit des explications sur ce qui nous arrive, nous rassure, pose le contexte et met les choses en perspectives.
+
+[2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
 Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013. Et notre Alliatys fait partie des produits nommément cités.
 
