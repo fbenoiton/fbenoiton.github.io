@@ -16,12 +16,13 @@ Après, comme [c'est écrit][2] dans *The Book of Life*, le bon compagnon n'est 
 
 [2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][2], assène le journal *Le Monde* dans un papier de 2013. Et notre Alliatys fait partie des produits nommément cités.
+Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Et notre cher Alliatys fait partie des produits nommément cités.
 
-Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'appuie sur la [transposition, en 2009][3], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). La loi voulait désormais le remboursement par l'établissement de paiement de tout débit contesté par le titulaire. Et même que *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Mais qu'en était-il avant, pendant les 7 années à partir de 2002 en ce qui me concernait ?
+[3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-[2]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
-[3]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
+Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'appuie sur la [transposition, en 2009][4], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). La loi voulait désormais le remboursement par l'établissement de paiement de tout débit contesté par le titulaire. Et même que, pour ce que nous avons déjà évoqué, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Mais qu'en était-il avant, pendant les 7 années à partir de 2002 en ce qui me concernait ?
+
+[4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
 ## Comme dans un tableau
 
