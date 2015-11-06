@@ -10,19 +10,27 @@ Si, dans sa phrase d'introduction, l'établissement de crédit parle de *"*[n]*o
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation (mais avec une carotide sectionnée et les deux poignets tranchés, il n'y a pas à s'en faire trop longtemps).
+On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation (avec une carotide sectionnée et les deux poignets tranchés, je vous le rappelle, il n'y a pas non plus à s'en faire trop longtemps).
 
-Après, comme [c'est écrit][2] dans *The Book of Life*, le bon compagnon n'est pas celui qui empêche les mauvaises choses de nous arriver. Qui le pourrait ? C'est la vie, fondamentalement imparfaite, nous sommes destinés à rencontrer de nombreuses difficultés sur notre parcours. Le bon compagnon n'est pas de ceux qui prétendent nous éviter les problèmes. C'est celui qui, face aux aléas de la vie, se tient indéfectiblement à nos côtés pour nous permettre d'y faire vaillamment face. Que nous soyons terrifiés, épuisés, horrifiés ou désorientés, le bon compagnon se montre patient et généreux : il nous apporte sa sagesse et partage son savoir, il pose le contexte et nous fournit des explications sur ce qui nous arrive. Ses mises en perspective sont rassurantes.
+Après, à la décharge d'Alliatys, [c'est écrit][2] dans *The Book of Life* que le bon compagnon n'est pas celui qui empêche les mauvaises choses d'arriver. Comment le pourrait-il ? C'est la vie, fondamentalement imparfaite, nous sommes voués à connaître de nombreuses difficultés en chemin. Le bon compagnon ne prétend pas nous éviter les problèmes, qu'avec lui tout ira bien, toujours.
+
+Non, face aux aléas de la vie, il se tient pluitôt indéfectiblement à nos côtés pour nous aider à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux : il nous apporte sa sagesse et partage son savoir, il pose le contexte et nous fournit des explications sur ce qui arrive. Ses mises en perspective sont rassurantes.
 
 [2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
-Mais entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Et notre cher Alliatys fait partie des produits nommément cités.
+Alors entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Notre pauvre Alliatys fait partie des produits nommément cités. Courage, mon petit !
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Je me régalais de cette lecture à l'avance. Malheureusement, l'accusation s'appuie sur la [transposition, en 2009][4], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !). La loi voulait désormais le remboursement par l'établissement de paiement de tout débit contesté par le titulaire. Et même que, pour ce que nous avons déjà évoqué, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Mais qu'en était-il avant, pendant les 7 années à partir de 2002 en ce qui me concernait ?
+Je me régalais de cette lecture à l'avance. Malheureusement, une grosse atténuation n'avait pas tôt fait de se glisser au détour d'une phrase : *"dans la très grande majorité des cas"*. Surtout, l'accusation s'appuyait sur la [transposition, en 2009][4], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !).
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
+
+La loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons déjà évoqué, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Qu'en était-il avant, pendant les 7 années à partir de 2002, en ce qui me concernait ?
+
+... comme le proclame sa profession de foi : 
+
+> 
 
 ## Comme dans un tableau
 
