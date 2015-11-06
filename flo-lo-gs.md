@@ -14,7 +14,7 @@ On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour
 
 Après, à la décharge d'Alliatys, [c'est écrit][2] dans *The Book of Life* que le bon compagnon n'est pas celui qui empêche les mauvaises choses d'arriver. Comment le pourrait-il ? C'est la vie, fondamentalement imparfaite, nous sommes voués à connaître de nombreuses difficultés en chemin. Le bon compagnon ne prétend pas nous éviter les problèmes, qu'avec lui tout ira bien, toujours.
 
-Non, face aux aléas de la vie, il se tient pluitôt indéfectiblement à nos côtés pour nous aider à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux : il nous apporte sa sagesse et partage son savoir, il pose le contexte et nous fournit des explications sur ce qui arrive. Ses mises en perspective sont rassurantes.
+Non, face aux aléas de la vie, il se tient pluitôt indéfectiblement à nos côtés pour nous aider à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux : il nous apporte sa sagesse et partage son savoir, il pose le contexte et nous fournit des explications sur ce qui peut se passer. Ses mises en perspective sont rassurantes.
 
 [2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
