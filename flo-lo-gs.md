@@ -22,7 +22,7 @@ Alors entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens 
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Je me régalais de cette lecture à l'avance. Malheureusement, une grosse atténuation n'avait pas tôt fait de se glisser au détour d'une phrase : *"dans la très grande majorité des cas"*. Surtout, l'accusation s'appuyait sur la [transposition, en 2009][4], d'une certaine directive européenne du 13 novembre 2007 (le jour de mes 35 ans !).
+Je me régalais de cette lecture à l'avance. Malheureusement, une grosse atténuation n'avait pas tôt fait de se glisser dans le propos, au détour d'une phrase : *"dans la très grande majorité des cas"*. Surtout, l'accusation s'appuyait sur la [transposition, en 2009][4], d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !).
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
