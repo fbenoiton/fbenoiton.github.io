@@ -28,9 +28,11 @@ Je me régalais de cette lecture à l'avance. Malheureusement, une grosse attén
 
 La loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons déjà évoqué, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Qu'en était-il avant, pendant les 7 années à partir de 2002, en ce qui me concernait ?
 
-... comme le proclame sa profession de foi : 
+Le jeune Alliatys en faillirait-il pour autant à sa mission, celle d'être alors avant tout, comme le clame sa profession de foi : 
 
-> 
+> Une assurance des moyens de paiement pour être plus serein au quotidien.
+
+... 
 
 ## Comme dans un tableau
 
