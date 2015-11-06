@@ -18,7 +18,7 @@ Non, face aux aléas de la vie, il se tient pluitôt indéfectiblement à nos c�
 
 [2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
-Alors entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Notre pauvre Alliatys fait partie des produits nommément cités. Courage, petit !
+Alors entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Notre pauvre Alliatys faisait partie des produits nommément cités. Courage, petit !
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
