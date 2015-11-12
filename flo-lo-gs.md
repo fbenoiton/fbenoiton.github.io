@@ -1,18 +1,18 @@
 ## À la recherche d'Alliatys
 
-D'un autre côté, dans l'absolu, je n'ai pas besoin d'aller chercher dans mes vieux papiers, dans la mesure où Alliatys existe toujours. La dénomination commerciale n'a pas changé avec le nombre des années. La réponse se trouve [sous le sabot][1] d'un courrier à cheval sur l'Internet.
+Dans l'absolu, je n'ai même pas besoin de chercher dans mes vieux papiers, puisque Alliatys [existe toujours][1], sous la même dénomination commerciale.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.html
 
-Alliatys, c'est donc *"L'assurance des moyens de paiement"*. Sous la rubrique *"Protection du compte"*, la depuis devenue Banque postale propose des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés, entre autres systèmes de paiement.
+Alliatys, c'est donc *"L'assurance des moyens de paiement"* de la depuis devenue Banque postale. Elle offre des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés, entre autres moyens de paiement.
 
-Si, dans sa phrase d'introduction, l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous, mais des conséquences pécuniaires des aléas couverts. À commencer par la facture présentée par la banque, comme le souligne d'ailleurs Alliatys sur son site :
+Si l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous, mais des conséquences pécuniaires des aléas couverts. À commencer par la facture présentée par la banque, comme le souligne Al lui-même :
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-On s'imaginerait, nous vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation (avec une carotide sectionnée et les deux poignets tranchés, je vous le rappelle, il n'y a pas non plus à s'en faire trop longtemps).
+On pourrait s'imaginer, se vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation. Dans autre côté, avec une carotide sectionnée et les deux poignets tranchés, je vous le rappelle, ça devrait aller vite.
 
-Après, à la décharge d'Alliatys, [c'est écrit][2] dans *The Book of Life* que le bon compagnon n'est pas celui qui empêche les mauvaises choses d'arriver. Comment le pourrait-il ? C'est la vie, fondamentalement imparfaite, nous sommes voués à connaître de nombreuses difficultés en chemin. Le bon compagnon ne prétend pas nous éviter les problèmes, qu'avec lui tout ira bien, toujours.
+Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (le livre de la vie) que le bon compagnon n'empêche pas les mauvaises choses d'arriver. Comment le pourrait-il, d'ailleurs ? C'est la vie, justement. Nous sommes voués à rencontrer bien des difficultés en chemin. Le bon compagnon ne prétend pas nous éviter les problèmes. Il ne nous assure pas qu'avec lui tout ira bien, toujours.
 
 Non, face aux aléas de la vie, il se tient pluitôt indéfectiblement à nos côtés pour nous aider à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux : il nous apporte sa sagesse et partage son savoir, il pose le contexte et nous fournit des explications sur ce qui peut se passer. Ses mises en perspective sont rassurantes.
 
