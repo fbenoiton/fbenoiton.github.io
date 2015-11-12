@@ -14,19 +14,21 @@ On pourrait s'imaginer, se vidant de notre sang suite à une sévère agression 
 
 Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (le livre de la vie) que le bon compagnon n'empêche pas les mauvaises choses d'arriver. Comment le pourrait-il, d'ailleurs ? C'est la vie, justement. Nous sommes voués à rencontrer bien des difficultés en chemin. Le bon compagnon ne prétend pas nous éviter les problèmes. Il ne nous assure pas qu'avec lui tout ira bien, toujours.
 
-Non, face aux aléas de la vie, il se tient pluitôt indéfectiblement à nos côtés pour nous aider à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux : il nous apporte sa sagesse et partage son savoir, il pose le contexte et nous fournit des explications sur ce qui peut se passer. Ses mises en perspective sont rassurantes.
+Non, il se tient plutôt indéfectiblement à nos côtés et nous aide à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux, nous apportant sa sagesse et son savoir. Ses mises en perspective sont rassérénantes.
 
 [2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
-Alors entrons dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Notre pauvre Alliatys faisait partie des produits nommément cités. Courage, petit !
+Nous pouvons maintenant entrer dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Et notre pauvre Alliatys fait partie des produits nommément cités.
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Je me régalais de cette lecture à l'avance. Malheureusement, une grosse atténuation n'avait pas tôt fait de se glisser dans le propos, au détour d'une phrase : *"dans la très grande majorité des cas"*. Surtout, l'accusation s'appuyait sur la [transposition, en 2009][4], d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !).
+Je me régale de la lecture à l'avance, mais une grosse atténuation n'a pas tôt fait son apparition, au détour d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de couverture depuis 2002.
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
-La loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons déjà évoqué, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*. Qu'en était-il avant, pendant les 7 années à partir de 2002, en ce qui me concernait ?
+En tout cas la loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons déjà évoqué, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
+
+***
 
 Devenu quasiment inutile, le maintien que l'on soupçonne cupide de ce type de produit posant dès lors question, le jeune Alliatys en faillirait-il pour autant à sa mission, qui serait alors plutôt celle, comme le clame sa profession de foi, d'être avant tout :
 
