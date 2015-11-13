@@ -4,9 +4,9 @@ Dans l'absolu, je n'ai même pas besoin de chercher dans mes vieux papiers, puis
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.html
 
-Alliatys, c'est donc *"L'assurance des moyens de paiement"* de la depuis devenue Banque postale. Elle offre des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés, entre autres moyens de paiement.
+Alliatys, c'est donc *"L'assurance des moyens de paiement"* de la depuis devenue Banque postale. Le contrat offre des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires, perdus ou volés, entre autres moyens de paiement.
 
-Si l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous, mais des conséquences pécuniaires des aléas couverts. À commencer par la facture présentée par la banque, comme le souligne Al lui-même :
+Si l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de nous, mais des conséquences pécuniaires des aléas couverts (il appelle ça la *"Protection du compte"*). À commencer par la facture présentée par la banque, comme le souligne All lui-même :
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
