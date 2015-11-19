@@ -26,7 +26,7 @@ Je me régale de la lecture à l'avance, mais une grosse atténuation n'a pas t�
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
-En tout cas la loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons évoqué au début, toujours d'après l'ancien quotidien de référence, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
+En tout cas la loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons évoqué au début, toujours d'après le quotidien de référence, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
 
 ***
 
