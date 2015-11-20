@@ -10,15 +10,15 @@ Si l'établissement de crédit parle de *"*[n]*ous protéger"*, il ne s'agit bie
 
 > L'exonération des frais de mise en opposition sur les chèques et de renouvellement anticipé de vos cartes émises par La Banque Postale en cas de perte ou de vol.
 
-On pourrait s'imaginer, se vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation. Dans autre côté, avec une carotide sectionnée et les deux poignets tranchés, je vous le rappelle, ça devrait aller vite.
+On pourrait s'imaginer, se vidant de notre sang suite à une sévère agression pour vol, tenir là une bien maigre consolation. D'un autre côté, avec une carotide sectionnée et les deux poignets tranchés, je vous le rappelle, il ne devrait pas y avoir à s'en faire trop longtemps.
 
-Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (le livre de la vie) que le bon compagnon n'empêche pas les mauvaises choses d'arriver. Comment le pourrait-il, d'ailleurs ? C'est la vie, justement. Nous sommes voués à rencontrer bien des difficultés en chemin. Le bon compagnon ne prétend pas nous éviter les problèmes. Il ne nous assure pas qu'avec lui tout ira bien, toujours.
+Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (le livre de la vie) que le bon compagnon n'empêche pas les mauvaises choses d'arriver. Comment le pourrait-il, d'ailleurs ? C'est la vie, justement. Nous sommes voués à rencontrer bien des difficultés en chemin.
 
-Non, il se tient plutôt indéfectiblement à nos côtés et nous aide à faire face. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux. Il nous apporte sa sagesse et son savoir, partage avec nous les informations qu'il détient. Ses mises en perspective sont rassérénantes.
+Non, le bon compagnon ne nous assure pas qu'avec lui tout ira bien, toujours. Mais il se tient indéfectiblement là, à nos côtés, nous aidant à faire face à l'adversité. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux, nous apportant sa sagesse et son savoir, partageant avec nous ses informations. Ses mises en perspective sont rassérénantes.
 
 [2]: http://www.thebookoflife.org/on-manuals-and-literature/
 
-Nous pouvons maintenant entrer dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde* dans un papier de 2013. Et notre pauvre Alliatys fait partie des produits nommément cités.
+Alors entrons maintenant dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde*, dans un papier de 2013. Notre pauvre Alliatys fait bel et bien partie des produits nommément cités.
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
