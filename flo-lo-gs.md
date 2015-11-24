@@ -18,15 +18,15 @@ Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (
 
 Non, le bon compagnon ne nous assure pas qu'avec lui tout ira bien, toujours. Mais il se tient indéfectiblement là, à nos côtés, nous aidant à faire face à l'adversité. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux, porteur de sa sagesse et de son savoir, n'hésitant pas à partager avec nous ses informations. Il nous replace dans le contexte. Ses mises en perspective sont rassérénantes.
 
-Entrons maintenant dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde*, dans un papier de 2013. Notre pauvre Alliatys fait bel et bien partie des produits nommément cités.
+Entrons maintenant dans le vif du sujet. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], assène le journal *Le Monde*, dans un papier de 2013. Nous retrouvons notre pauvre Alliatys, qui fait partie des produits nommément cités.
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Je me régale de la lecture à l'avance, mais une grosse atténuation n'a pas tôt fait son apparition, au détour d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de couverture depuis 2002.
+Je me régale de la lecture à l'avance, mais une grosse atténuation ne tarde pas à surgir, nous sautant aux yeux au détour d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de couverture depuis 2002.
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
-En tout cas la loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, pour ce que nous avons évoqué au début, toujours d'après le quotidien de référence, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
+La loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, toujours d'après le quotidien de référence, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
 
 ***
 
