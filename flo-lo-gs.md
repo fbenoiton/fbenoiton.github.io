@@ -18,7 +18,7 @@ Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (
 
 Non, le bon compagnon se tient plutôt indéfectiblement là, à nos côtés, pour faire face à l'adversité. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux. Il met à notre service sa sagesse et son savoir. Il partage ses informations. Il nous replace dans le contexte. Ses mises en perspective sont rassérénantes.
 
-[En plus d'être chère, l'assurance moyens de paiement est inutile][3], entre dans le vif du sujet le journal *Le Monde*, dans un papier de 2013. Nous retrouvons notre pauvre Alliatys, qui fait partie des produits nommément cités, assis sur le bord du trottoir, les bras posés sur les genoux, les yeux dans le vague.
+Mais revenons à nos moutons. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], entre dans le vif du sujet le journal *Le Monde*, dans un papier de 2013. Nous retrouvons notre pauvre Alliatys, qui fait partie des produits nommément cités, assis sur le bord du trottoir, les bras posés sur les genoux, les yeux dans le vague.
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
