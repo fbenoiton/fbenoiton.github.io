@@ -22,7 +22,7 @@ Non, le bon compagnon ne nous assure pas qu'avec lui tout ira bien, toujours. Ma
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Je me régale de la lecture à l'avance, mais une grosse atténuation ne tarde pas à surgir, nous sautant aux yeux au détour d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de couverture depuis 2002.
+Je me régale de cette lecture à l'avance, mais une grosse atténuation ne tarde pas à me sauter aux yeux, au détour d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie uniquement sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de souscription au produit depuis 2002.
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
