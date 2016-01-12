@@ -18,11 +18,11 @@ Après, à la décharge d'Alliatys, [il est écrit][2] dans *The Book of Life* (
 
 Non, le bon compagnon se tient plutôt indéfectiblement là, quoi qu'il arrive, à nos côtés, quand nous nous retrouvons face à l'adversité. Que nous soyons terrifiés, épuisés, horrifiés, irrités ou désorientés, le bon compagnon se montre patient et généreux. Il met à notre service sa sagesse et son savoir. Il nous informe, replace dans le contexte. Ses mises en perspective sont rassérénantes.
 
-Mais revenons à nos moutons. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], entre dans le vif du sujet le journal *Le Monde*, dans un papier de 2013. Nous retrouvons notre pauvre Alliatys, qui fait partie des produits nommément cités, assis sur le bord du trottoir, les bras posés sur les genoux, les yeux dans le vague.
+Mais revenons à nos moutons. [En plus d'être chère, l'assurance moyens de paiement est inutile][3], entre dans le vif du sujet le journal *Le Monde*, dans un papier de 2013. Nous retrouvons notre pauvre Alliatys en bonne place, faisant partie des produits nommément cités. Assis sur le bord du trottoir, nous l'imaginons sonné et l'air fatigué, les bras posés sur les genoux, les yeux perdus dans le vague.
 
 [3]: http://www.lemonde.fr/economie/article/2013/01/21/en-plus-d-etre-chere-l-assurance-moyens-de-paiement-est-inutile_1819930_3234.html
 
-Je me régale de cette lecture à l'avance, mais une grosse atténuation ne tarde pas à me sauter aux yeux, au détour d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie uniquement sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de souscription au produit depuis 2002.
+Je me régalais de cette lecture à l'avance, mais une grosse atténuation ne tarde pas à me sauter aux yeux, au coin d'une phrase : *"dans la très grande majorité des cas"*. Et puis l'accusation s'appuie uniquement sur la [transposition, en 2009][4] seulement, d'une directive européenne du 13 novembre 2007 (le jour de mes 35 ans !), laissant dans l'ombre, en ce qui me concerne, 7 années de souscription au produit depuis 2002.
 
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
