@@ -1,10 +1,10 @@
 ## À la recherche d'Alliatys
 
-Dans l'absolu, je n'ai même pas besoin de chercher dans mes vieux papiers, puisque Alliatys [existe toujours][1], sous la même dénomination commerciale.
+Dans l'absolu, je n'ai même pas besoin de chercher dans mes vieux papiers, puisque Alliatys [existe toujours][1], dénomination commerciale inchangée.
 
 [1]: https://www.labanquepostale.fr/particulier/produits/quotidien/comptes_services/alliatys.html
 
-Il s'agit donc de *"L'assurance des moyens de paiement"* de la Banque postale. Elle offre des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires des clients de l'établissement perdus ou volés, entre autres moyens de paiement.
+Il s'agit donc de *"L'assurance des moyens de paiement"* de la Banque postale. Elle offre des garanties contre l'utilisation *"frauduleuse"* des chèques et cartes bancaires perdus ou volés, entre autres moyens de paiement des clients de l'établissement.
 
 Quand La Poste parle de *"*[n]*ous protéger"*, il ne s'agit bien sûr pas de notre personne, mais des conséquences pécuniaires des aléas couverts (la *"Protection du compte"*). À commencer par la facture présentée par la banque, comme le souligne  Alliatys *himself* sur son site :
 
@@ -27,5 +27,3 @@ Je me régale de cette lecture à l'avance, mais une grosse atténuation ne tard
 [4]: http://www.legifrance.gouv.fr/affichTexte.do?cidTexte=JORFTEXT000020856747&categorieLien=id
 
 La loi voulait désormais le remboursement par l'établissement de paiement de tout débit litigieux. Même que, toujours d'après le quotidien de référence, *"le client abusé n'a pas à régler de frais de refabrication de sa carte à la suite de son vol"*.
-
-
