@@ -2,7 +2,7 @@ title: Florian Benoiton I/O
 description: Centre rédactionnel.
 google_analytics: 
 show_downloads: true
-theme: jekyll-theme-minimal
+theme: jekyll-theme-slate
 
 gems:
   - jekyll-mentions
