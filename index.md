@@ -2,8 +2,8 @@
 
 ### Vidéo parc Banjan
 
-- Teaser 1 
-https://youtu.be/RgeNwsMLXBM
+Teaser 1 
+[YouTube](https://youtu.be/RgeNwsMLXBM)  
 Fichier
 
-- Questionnaire IMS
+### Questionnaire IMS
