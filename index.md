@@ -1,9 +1,9 @@
 ## CA Homogène 4/9/18
 
+[Fichiers (Box)](https://app.box.com/s/m57flncah28osehpud52i2s242kd6t06)
+
 ### Vidéo parc Banjan
 
-Teaser 1 
-[YouTube](https://youtu.be/RgeNwsMLXBM)  
-Fichier
+-[YouTube](https://youtu.be/RgeNwsMLXBM)  
 
 ### Questionnaire IMS
